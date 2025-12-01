@@ -31,7 +31,7 @@
 
 ### 4. Detalles sensoriales agregados
 
-| Escena | Detalles añadidos |
+| Escena | Detalles agregados |
 |--------|-------------------|
 | Fila exterior | Sol pegando, olor a transpiración mezclado con perfume barato, papeles arrugándose en el calor |
 | Salón interior | Olor a humedad de pared vieja y tinta de impresora, mesas plegables que crujen |
