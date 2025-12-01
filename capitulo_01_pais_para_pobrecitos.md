@@ -2,26 +2,6 @@
 
 ## Capítulo 1 – País para Pobrecitos
 
----
-
-### Cambios clave realizados:
-
-1. **Cortes de repeticiones:** Eliminé explicaciones duplicadas sobre el significado de "pobrecito" y "vulnerables". Acorté la secuencia "bastante suerte tenés" de cinco a cuatro instancias, manteniendo el impacto rítmico sin saturar.
-
-2. **Mejora del ritmo narrativo:** Fusioné algunas líneas de diálogo que fragmentaban el flujo. Eliminé frases explicativas que frenaban las escenas (ej: "Lo dijo casi con orgullo, como si hubiera en la palabra un reconocimiento oficial").
-
-3. **Ambivalencias morales de Estanislao:** Agregué momentos donde él mismo participa del sistema que critica (usa la moto prestada sin cuestionar el favor, no rechaza la comida del comedor). También un gesto de impaciencia con la abuela que muestra su lado más áspero.
-
-4. **Detalles sensoriales agregados:**
-   - Escena inicial: olor a humedad y kerosén, frío en los pies descalzos
-   - Kiosco: moscas, calor pegajoso, olor a fritura de la esquina
-   - Comedor: vapor de las ollas, olor a guiso, sudor de los cuerpos en la fila
-   - Noche: colchón hundido, ruido específico del agua goteando en un balde
-
----
-
-### Texto reescrito:
-
 San Aurelio amanecía con la misma frase de siempre.
 
 —Pobrecitos… —dijo la conductora del noticiero, con voz grave y gesto ensayado—. Otra vez la lluvia afecta a los barrios más vulnerables.
