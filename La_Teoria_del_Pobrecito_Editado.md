@@ -2438,75 +2438,313 @@ Y eso no lo puedo permitir."
 
 # Capítulo 18 – Lección para el Barrio
 
-A la mañana siguiente, el auto negro lo esperaba.
+El amanecer llegó gris, pesado, como si el cielo también estuviera de luto. Estanislao no había dormido. Cada vez que cerraba los ojos, veía a Mauro tirado en el piso del taller, la sangre oscura mezclándose con el aserrín.
 
-—Lo de anoche fue feo —dijo el Jefe, casi con tono de pésame—. Te juro que si Mauro se hubiera quedado callado, no hacía falta. Pero se puso en maestro rural, quiso dar clase al barrio.
+Todavía tenía el olor en la nariz. Metal, pólvora, muerte.
+
+A las siete, el auto negro ya estaba estacionado en la esquina. El Jefe bajó la ventanilla y lo saludó con un gesto casual, como si fuera una mañana cualquiera.
+
+—Subí, pibe. Tenemos que hablar.
+
+Estanislao dudó. Miró hacia atrás: la casa, la abuela que todavía no sabía, la madre que dormía después de turnos dobles. Todo seguía igual, pero nada era lo mismo.
+
+Subió al auto. El cuero de los asientos crujió bajo su peso.
+
+—Lo de anoche fue feo —dijo el Jefe, encendiendo un cigarrillo. El humo llenó el espacio cerrado—. Te juro que si Mauro se hubiera quedado callado, no hacía falta. Pero se puso en maestro rural, ¿viste? Quiso dar clase al barrio. Demostrar que se podía vivir de otra manera.
 
 —Lo mataron por decirte que no.
 
-—Lo mataron por decirme que no **en este contexto**. Con municipio, gremio, gobernación y todos mirando. No podían dejar que quedara como héroe. Tenían que dejarlo como advertencia.
+El Jefe lo miró de reojo, evaluándolo. En su cara no había culpa ni arrepentimiento. Solo cálculo.
 
-El Jefe hizo un gesto amplio:
+—Lo mataron por decirme que no **en este contexto**. Con municipio, gremio, gobernación y todos mirando. ¿Entendés la diferencia?
 
-—Y vos, Estanislao, quedaste en el lugar más jodido: sos el discípulo del mal ejemplo.
+—No.
+
+—El problema no era que Mauro dijera que no. El problema era que Mauro dijera que no **y que le fuera bien**. Que tuviera clientes. Que pagara en término. Que los pibes lo admiraran. Que vos aprendieras de él. Eso era imperdonable.
+
+El auto avanzaba lento por el barrio. Estanislao reconoció las calles: la panadería, el almacén de Don Roque, la esquina donde jugaban los pibes.
+
+—En este país, Estanislao, el sistema no castiga al que fracasa. Castiga al que **triunfa sin permiso**. Al que demuestra que se puede.
+
+—¿Por qué?
+
+—Porque si se puede, entonces los demás podrían preguntarse: "¿Y yo por qué no?" Y si muchos se preguntan eso, se cae el cuento de que todos necesitan ayuda. Se cae el negocio del pobrecito.
+
+Pasaron frente al taller de Mauro. La persiana estaba baja, la cinta amarilla de la policía ya estaba cortada. Algunos curiosos miraban desde lejos.
+
+—Mirá eso —dijo el Jefe, señalando con la cabeza—. Ahora todos van a decir "pobrecito Mauro". Lo van a convertir en víctima. Van a decir que fue por la inseguridad, por la crisis, por la falta de Estado. Nadie va a decir la verdad: que lo mataron por ser un **mal ejemplo**.
+
+Estanislao sintió que se le cerraba la garganta.
+
+—Y vos, pibe, quedaste en el lugar más jodido: sos el discípulo del mal ejemplo. Sabés lo que él sabía. Aprendiste lo que él enseñaba.
+
+El Jefe le puso la mano en el hombro. El gesto era casi paternal, pero la presión era de advertencia.
+
+—Ahora la pregunta es: ¿vas a usar eso para repetir su historia... o para escribir otra?
+
+El auto se detuvo frente a la casa de Estanislao.
+
+—Pensalo —dijo el Jefe—. Yo puedo protegerte. O puedo dejar que te protejan otros. La decisión es tuya. Pero no te queda mucho tiempo para decidir.
+
+Estanislao bajó del auto sin decir nada.
+
+Esa noche, en el cuaderno, escribió una sola línea:
+
+*"Lo mataron para que el barrio aprenda a no intentar. Esa es la lección. Y ahora me toca decidir si la acepto o la reescribo."*
 
 ---
 
 # Capítulo 19 – El Mapa del Monstruo
 
-—Subite —dijo el Jefe—. No es para una ruta. Es para que veas de cerca cómo funciona el mapa.
+Tres días después de la muerte de Mauro, el Jefe volvió a buscarlo.
 
-El auto negro avanzaba despacio por calles conocidas.
+Esta vez no había advertencia en su tono. Había algo más peligroso: pedagogía.
 
-—Primera parada: **el municipio**. Ahí adentro se decide quién existe en los papeles y quién no.
+—Subite —dijo, abriendo la puerta del auto negro—. No es para una ruta. Es para que veas de cerca cómo funciona el mapa.
 
-—Segunda parada: **sindicato + empresas grandes**. "No a los talleres truchos" = no a que entren nuevos a competir.
+Estanislao miró hacia la casa. La abuela lo observaba desde la ventana, el rosario en la mano. La madre había salido temprano al comedor.
 
-—Tercera parada: **seguridad**. No toda la cana está vendida. Pero la suficiente.
+Subió.
 
-Desde la barranca, la ciudad brillaba abajo.
+El auto arrancó despacio, como si tuviera todo el tiempo del mundo.
 
-—¿Por qué te muestro esto? Para que entiendas que el "pacto" es para no mover nada de lugar.
+—Viste que yo siempre digo "el sistema" —empezó el Jefe, manejando con una sola mano—. Pero eso suena a conspiración, a película. Vos necesitás ver cómo funciona de verdad. Cómo cada pieza encaja con la otra.
+
+El auto tomó la avenida principal.
+
+—**Primera parada: el municipio.**
+
+Se estacionaron frente a un edificio viejo, con la pintura descascarada y la bandera argentina desteñida.
+
+—Ahí adentro se decide quién existe en los papeles y quién no. ¿Querés un permiso? Depende de a quién conocés. ¿Querés una inspección favorable? Depende de cuánto pagás. ¿Querés que te dejen en paz? Depende de si molestás o no a los que importan.
+
+Estanislao miró las ventanas. Detrás de una de ellas, un empleado tomaba mate mirando el celular.
+
+—Mauro pidió todos los permisos legales —continuó el Jefe—. Cumplió con todo. ¿Y qué pasó? Le mandaron inspectores hasta que encontraron algo para clausurarlo. No porque incumpliera. Porque no jugaba el juego.
+
+El auto siguió avanzando.
+
+—**Segunda parada: el sindicato y las empresas grandes.**
+
+Frenaron frente a un edificio moderno, con un cartel enorme: "CÁMARA METALÚRGICA DE SAN AURELIO".
+
+—Acá adentro se juntan los que dicen defender a los trabajadores y los que dicen representar a los empresarios. Enemigos en el discurso, socios en la práctica.
+
+—No entiendo.
+
+—"No a los talleres truchos" —dijo el Jefe, imitando una voz solemne—. Suena lindo, ¿no? Defender los derechos laborales, la seguridad, la formalidad. Pero en la práctica significa: "No a que entren nuevos a competir". Si Mauro hubiera afiliado a sus empleados al sindicato y pagado coima a la cámara, lo habrían dejado tranquilo. Pero quería hacer las cosas limpias. Y eso no se perdona.
+
+Estanislao empezaba a entender. El mapa no era de buenos contra malos. Era de cómplices contra outsiders.
+
+—**Tercera parada: seguridad.**
+
+El auto pasó frente a la comisaría del barrio. Un oficial los miró desde la puerta, reconoció el auto, y siguió tomando su café.
+
+—No toda la cana está vendida —admitió el Jefe—. Hay tipos honestos. Pero los honestos no duran en los puestos que importan. Los que duran son los que entienden cómo funciona esto. Miran para otro lado cuando tienen que mirar. Actúan cuando les conviene. Investigan lo que les dicen que investiguen.
+
+—¿Y la muerte de Mauro?
+
+—Caso cerrado antes de abrirse. Ajuste de cuentas. Inseguridad. Pobreza. Las palabras de siempre para no decir la verdad.
+
+El auto subió por una calle empinada, hasta llegar a una barranca con vista a toda la ciudad. San Aurelio brillaba abajo: las luces de las casas, las fábricas humeando, los barrios extendiéndose como manchas.
+
+—Mirá eso —dijo el Jefe, apagando el motor—. Todo eso que ves es el monstruo. No tiene cabeza. Tiene muchas cabezas. No tiene plan. Tiene muchos planes que se cruzan. Pero todas las cabezas quieren lo mismo: que nada cambie.
+
+—¿Por qué me mostrás esto?
+
+El Jefe lo miró con algo parecido al respeto.
+
+—Porque vos sos peligroso, Estanislao. No porque tengas armas o plata o poder. Sos peligroso porque entendés. Y el que entiende puede explicar. Y el que explica puede despertar a otros.
+
+—¿Y qué querés de mí?
+
+—Quiero que entiendas que el "pacto" es para no mover nada de lugar. El municipio necesita a las empresas para recaudar. Las empresas necesitan al sindicato para controlar a los laburantes. El sindicato necesita al delito para apretar a los que no pagan. Y el delito necesita al municipio para operar tranquilo. Todos se necesitan.
+
+—Es un círculo.
+
+—Es **el** círculo. Y los que intentan salirse terminan como Mauro.
+
+Estanislao miró la ciudad. Cada luz era una historia. Cada historia era alguien eligiendo —consciente o no— si quedarse adentro del círculo o intentar romperlo.
+
+—¿Y si alguien lo rompe?
+
+—Nadie lo rompe desde adentro. Nadie lo rompe desde afuera. Lo único que podés hacer es crear grietas. Y esperar que sean suficientes.
+
+El auto descendió en silencio.
+
+Esa noche, Estanislao no escribió. Solo dibujó: cuatro círculos entrelazados, cada uno alimentando al otro.
+
+Lo tituló: **"El Mapa del Monstruo"**.
 
 ---
 
 # Capítulo 20 – La Última Versión
 
-Estanislao empezó a escribir en serio.
+Pasaron semanas.
 
-Lucas, de La Escalera, lo ayudó a editar. Imprimieron en una copistería vieja, con tapa de cartón reciclado:
+El taller de Mauro fue vaciado, vendido, olvidado. El cartel que decía "HERRERÍA Y CARPINTERÍA - TRABAJO HONESTO" desapareció una noche. Nadie preguntó quién lo sacó.
 
-**"La Teoría del Pobrecito"**
+Estanislao seguía yendo a La Escalera, pero ahora con otro propósito. Ya no era solo para aprender. Era para procesar.
 
-Empezaron a circular fotocopias. Algunos lo leían a escondidas, para no quedar de "agrandados". Otros lo criticaban. Otros lo subrayaban.
+—Tenés que escribir —le dijo Lucas una tarde, mientras cebaba mate en el patio de la casa comunitaria—. Todo lo que sabés, todo lo que viste. Si no lo escribís, se pierde.
 
-El auto negro notó que algo estaba pasando.
+—¿Para qué? ¿Quién va a leerlo?
 
-—Estanislao. Escribiste cosas. Sabemos.
+—No sé. Pero peor es que no exista.
+
+Estanislao empezó esa misma noche.
+
+Escribía en el cuaderno de siempre, el de tapa dura que le había regalado la abuela. Pero ahora las anotaciones sueltas empezaban a conectarse. Las frases que había escuchado de Julián, las conversaciones con Mauro, las explicaciones del Jefe. Todo formaba parte de un mismo dibujo.
+
+El título llegó solo: **"La Teoría del Pobrecito"**.
+
+No era un libro académico. No era un panfleto político. Era algo intermedio: una historia contada desde adentro, con nombres cambiados y lugares reconocibles.
+
+Explicaba cómo el sistema necesitaba pobrecitos para funcionar. Cómo los creaba, cómo los mantenía, cómo los premiaba por quedarse quietos y castigaba a los que se movían.
+
+Explicaba los tres caminos. Explicaba el mapa del monstruo. Explicaba por qué Mauro había tenido que morir.
+
+Y sobre todo, explicaba algo que nadie le había dicho directamente, pero que él había descubierto solo: que **pobrecito no es una condición económica. Es un estado mental.**
+
+Se puede ser pobre y no pobrecito. Se puede tener plata y ser el más pobrecito de todos.
+
+Lucas lo leyó primero. Después, algunos de La Escalera. Después, empezaron a pasarlo de mano en mano.
+
+—Esto tiene que salir de acá —dijo una piba que estudiaba comunicación—. Pero si lo publicás con tu nombre, te hacés boleta.
+
+—Ya lo sé.
+
+—¿Entonces?
+
+—Entonces que circule. Sin nombre. Que sea de todos.
+
+Imprimieron las primeras copias en una copistería vieja del centro, con tapa de cartón reciclado. Cien ejemplares. Costó la plata de tres meses de changas.
+
+Los dejaron en bares, en colectivos, en salas de espera. Algunos aparecieron en universidades. Otros, en sindicatos. Otros, en comisarías —ironía o provocación, nadie supo.
+
+Algunos lo leían a escondidas, para no quedar de "agrandados". Otros lo criticaban sin haberlo leído. Otros lo subrayaban, lo discutían, lo pasaban.
+
+El auto negro, por supuesto, se enteró.
+
+Una tarde, el Jefe lo esperó en la esquina de siempre.
+
+—Estanislao. Escribiste cosas. Sabemos. No tengo que decirte qué cosas.
+
+—Es solo un cuaderno.
+
+—Es un cuaderno que explica cómo funciona todo. Y eso es más peligroso que un arma.
+
+—¿Me vas a matar?
+
+El Jefe no contestó directamente. Encendió un cigarrillo, miró hacia la calle.
+
+—Todavía no decidimos qué hacer con vos. Hay gente que dice que sos manejable. Hay gente que dice que ya es tarde. Yo digo que depende de vos.
+
+—¿De mí?
+
+—De si seguís escribiendo o te callás.
+
+Estanislao pensó en Mauro. En Julián. En todos los que habían intentado decir la verdad y habían pagado el precio.
+
+—No me voy a callar.
+
+El Jefe asintió, como si ya lo supiera.
+
+—Entonces preparate para lo que viene.
 
 La bala llegó una noche, sin aviso.
 
-No fue en el taller. Fue en la calle, volviendo de La Escalera.
+No fue en el taller —ya no había taller. Fue en la calle, volviendo de La Escalera. Una moto pasó rápido, un disparo seco, y después el silencio.
 
 Lo encontraron tirado en la vereda, consciente, respirando corto.
 
 Una bala en el costado. No mortal, pero clara.
 
+El mensaje era inconfundible: **la próxima va al centro.**
+
+En el hospital, mientras los médicos lo cosían, Estanislao pensó en algo que había escrito semanas atrás:
+
+*"El sistema no mata a todos los que resisten. A veces, los deja vivos para que sirvan de ejemplo de lo que les pasa a los que hablan."*
+
+Ahora él era ese ejemplo.
+
 ---
 
 # Capítulo 21 – Pobrecito el que Habla
 
-En el hospital, la madre lloraba:
+El hospital público de San Aurelio olía a desinfectante barato y a desesperanza. Los pasillos estaban llenos de gente esperando turnos que nunca llegaban, camillas con pacientes olvidados, enfermeros corriendo entre emergencias.
 
-—Pobrecito mi nene. Por querer escribir cosas que nadie le pedía.
+Estanislao pasó tres días en observación. La bala había entrado limpia, sin tocar órganos vitales. Los médicos dijeron que era "suerte". Él sabía que era puntería: lo habían herido justo lo suficiente para que entendiera, pero no tanto como para que muriera.
 
-Lucas trajo noticias:
+La madre llegó la primera noche, llorando:
 
-—El libro circula. No lo pueden frenar.
+—Pobrecito mi nene. Pobrecito. Por querer escribir cosas que nadie le pedía. Por querer ser más de lo que somos.
 
-Estanislao sonrió, con dolor:
+Estanislao la miró desde la cama. Tenía la boca seca, el costado envuelto en vendas, y una claridad extraña en la cabeza.
+
+—No soy pobrecito, má.
+
+—¿Cómo que no? Mirá cómo estás. Mirá lo que te hicieron.
+
+—Me hicieron esto porque **no** soy pobrecito. Porque no me quedé callado. Porque intenté.
+
+La madre no entendió. Siguió llorando, acariciándole el pelo, repitiendo la palabra como un mantra: pobrecito, pobrecito, pobrecito.
+
+La abuela llegó al día siguiente. Entró despacio, con el rosario en la mano y una bolsa con comida casera que los médicos no iban a dejar que comiera.
+
+Se sentó en la silla de plástico, lo miró largo, y dijo:
+
+—Bueno. Ya está. Ya pasó.
+
+—Abuela…
+
+—No me vengas con explicaciones. Ya sé por qué te pegaron el tiro. Todo el barrio sabe. Y la mitad dice que te la buscaste.
+
+—¿Y vos qué decís?
+
+La abuela sonrió, un gesto pequeño pero genuino.
+
+—Yo digo que tu abuelo también se la buscaba. Y terminó igual. Pero nunca se arrepintió.
+
+Estanislao sintió que se le aflojaba algo en el pecho. No era perdón, ni aprobación. Era algo mejor: comprensión.
+
+—El cuaderno sigue circulando —continuó la abuela—. Ayer vino la Mirta del kiosco a preguntarme si era verdad que lo habías escrito vos. Le dije que no sabía nada.
+
+—Bien hecho.
+
+—Pero mentí. Leo lo que escribís, nene. Siempre leo. Y me gusta. Aunque no entienda todo.
+
+Lucas llegó esa tarde, con noticias.
+
+—El libro circula —dijo, sentándose en el borde de la cama—. No lo pueden frenar. Ya está en tres universidades. Hay grupos de lectura en el conurbano. Un portal de noticias lo citó.
+
+—¿Y el auto negro?
+
+—No sé. Están callados. Eso puede ser bueno o puede ser muy malo.
+
+Estanislao miró el techo del hospital. Las manchas de humedad formaban mapas de países que no existían.
+
+—Sabés qué me da más bronca, Lucas? No es el tiro. Es que ahora todos me van a decir "pobrecito Estanislao". Van a convertir esto en una historia de víctima.
+
+—¿Y vos qué querés ser?
+
+—Quiero ser el tipo que entendió el cuento y lo escribió para que otros lo entiendan. No quiero ser un mártir. Quiero ser un ejemplo de que **se puede**.
+
+Lucas asintió.
+
+—Entonces cuando salgas de acá, seguí escribiendo.
 
 —Si después de todo esto me vuelvo a creer pobrecito, gana el cuento de ellos.
+
+Esa noche, con la mano que le quedaba libre, Estanislao escribió en un papel de hospital:
+
+*"Me pegaron un tiro por hablar. Ahora tengo dos opciones: callarme y confirmar que el silencio es seguro, o seguir hablando y demostrar que las ideas no se matan con balas. La primera opción es fácil. La segunda es la única que vale la pena."*
+
+Dobló el papel y lo guardó debajo de la almohada.
+
+Afuera, la noche de San Aurelio seguía su ritmo: sirenas, cumbia lejana, perros ladrando.
+
+Adentro, en una cama de hospital público, un pibe de diecinueve años decidía que no iba a rendirse.
 
 ---
 
