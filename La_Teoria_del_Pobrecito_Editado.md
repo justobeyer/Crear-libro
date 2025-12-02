@@ -762,39 +762,112 @@ El pizarrón de La Escalera amaneció con una frase escrita en mayúsculas torci
 "EL MÉRITO NO ESTÁ MUERTO.
 LO SECUESTRARON."
 
-Julián estaba de espaldas, acomodando pilas de papeles.
+Julián estaba de espaldas, acomodando pilas de papeles. El café frío de la mañana anterior todavía humeaba en un vaso de plástico. Afuera, el sol de las siete pegaba fuerte contra la ventana sucia, llenando el aula de una luz amarillenta que parecía de hospital.
 
 —Hoy vamos a hablar de una mala palabra —dijo, sin darse vuelta—. Siéntense.
 
-Se giró, tomó el marcador y subrayó "MÉRITO" en el pizarrón.
+Estanislao se acomodó en una de las sillas de plástico despareja. A su lado, otros cuatro pibes del barrio: Daniela, que trabajaba en una verdulería y soñaba con estudiar enfermería; el Toto, que había dejado la secundaria tres veces y ahora volvía a intentarlo; Mirta, madre de dos, divorciada, que hacía limpieza en un country y llegaba siempre con las manos ásperas de lavandina; y el Ruso, un pibe callado que nadie sabía bien de qué vivía, pero que nunca faltaba a las clases.
+
+Julián se giró, tomó el marcador y subrayó "MÉRITO" en el pizarrón.
 
 —En este país, si pronunciás esta palabra en voz alta te miran raro. Algunos te acusan de facho. Otros de ingenuo. Pero **todos** la usan cuando nadie los ve.
 
 Escribió dos columnas:
 
-MÉRITO vs. VERSIÓN TORCIDA DEL MÉRITO
+MÉRITO SANO vs. MÉRITO TORCIDO
 
-—El mérito sano es simple: *hice un esfuerzo, aprendí algo, mejoré, aporté valor, y eso tiene un reconocimiento justo.* En cambio, la versión torcida dice: *como yo tengo mérito, el mundo me debe todo, aunque hoy no esté haciendo nada.*
+—El mérito sano es simple: *hice un esfuerzo, aprendí algo, mejoré, aporté valor, y eso tiene un reconocimiento justo.* Es lo que pasa cuando un albañil levanta una pared bien hecha y cobra lo que corresponde. O cuando un médico estudia diez años y después salva vidas. Hay un trabajo, hay un resultado, hay una recompensa proporcional.
+
+Hizo una pausa. Bebió un sorbo del café frío y puso cara de asco.
+
+—En cambio, la versión torcida dice dos cosas opuestas pero igual de dañinas. La primera: *"como yo tengo mérito, el mundo me debe todo, aunque hoy no esté haciendo nada"*. Es el hijo de empresario que cree que merece heredar el puesto sin saber nada. Es el político que cree que por haber ganado una vez, tiene derecho a ganar siempre.
+
+Daniela levantó la mano.
+
+—¿Y la segunda versión torcida?
+
+Julián sonrió, como si hubiera esperado la pregunta.
+
+—La segunda es la que más nos afecta acá: *"como el mérito no existe, no tiene sentido esforzarse"*. Es la que nos venden cuando nos dicen que somos pobrecitos, que el sistema está armado en contra nuestra, que lo único que podemos hacer es esperar que alguien nos tire una soga.
+
+Escribió en el pizarrón:
+
+"EL POBRECITO CREE QUE NO PUEDE.
+Y CUANDO CREE QUE NO PUEDE, DEJA DE INTENTAR.
+Y CUANDO DEJA DE INTENTAR, CONFIRMA LO QUE CREÍA."
+
+—Ese es el loop. La trampa perfecta. Te convencen de que no podés, dejás de moverte, y después te señalan como prueba de que tenían razón.
 
 Mientras hablaba, el celular de Estanislao vibró en el bolsillo. Era un mensaje del Negro:
 
 "Che, Estani, te aviso que para lo del depósito llevaron a mi sobrino. Viste cómo es, familia primero. Igual vos seguí con las changas."
 
-Sintió un pinchazo en el pecho. Había ido dos veces a entrevistas al depósito, había hecho pruebas. Le habían dicho que, si se abría un puesto fijo, lo iban a tener en cuenta.
+Sintió un pinchazo en el pecho. Había ido dos veces a entrevistas al depósito, había hecho pruebas, había llegado temprano, había contestado bien las preguntas. Le habían dicho que, si se abría un puesto fijo, lo iban a tener en cuenta.
 
 Al final, el puesto se abrió. Pero el mérito no alcanzó. La sangre pesó más.
 
+Se quedó mirando el mensaje, quieto.
+
+—¿Estás bien? —le preguntó Daniela en voz baja.
+
+—Sí. Nada. Cosas.
+
+Pero no estaba bien. Sentía algo que no sabía nombrar: una mezcla de bronca, de resignación, de ganas de mandar todo a la mierda. ¿Para qué esforzarse si al final el puesto se lo daban al sobrino del jefe? ¿Para qué venir a estas clases si afuera el mundo seguía funcionando con las mismas reglas de siempre?
+
 ---
 
-Julián seguía hablando.
+En el recreo, salió a la vereda a fumar. El humo le llenó los pulmones con ese sabor amargo que ya no era placer, era costumbre. Ramiro le había dicho una vez: "Los pobres fumamos para olvidarnos de que somos pobres. Los ricos fuman para sentirse rebeldes".
 
-—Les voy a decir algo que no es lindo de oír: *va a haber momentos en que van a hacer todo bien y les va a ir mal igual*. Eso no significa que el esfuerzo sea inútil. Significa que el mundo es retorcido. La pregunta correcta no es: "¿vale la pena si no me garantizan el premio?" La pregunta es: **"¿quién me convierto si dejo de intentarlo?"**
+Julián se le acercó con las manos en los bolsillos.
 
-Esa noche, Estanislao escribió en el cuaderno:
+—Te vi la cara cuando miraste el celular. ¿Malas noticias?
+
+Estanislao dudó. No le gustaba contar sus cosas. Pero algo en Julián lo hacía bajar la guardia.
+
+—Me cagaron un laburo. Llevaron al sobrino del dueño. Y yo que me había preparado, que había ido a las entrevistas como un boludo…
+
+Julián asintió despacio, sin sorpresa.
+
+—¿Sabés cuántas veces me pasó lo mismo? —dijo—. Perdí la cuenta. En el campo, en la ciudad, en todos lados. El nepotismo es el deporte nacional de este país. Pero te voy a decir algo que no es lindo de oír.
+
+Se apoyó contra la pared, mirando la calle de tierra.
+
+—Va a haber momentos en que vas a hacer todo bien y te va a ir mal igual. Vas a estudiar, vas a laburar, vas a cumplir, y un sobrino de alguien te va a pasar por arriba. Eso no significa que el esfuerzo sea inútil. Significa que el mundo es retorcido. Pero la pregunta correcta no es: "¿vale la pena si no me garantizan el premio?" La pregunta es: **"¿quién me convierto si dejo de intentarlo?"**
+
+Estanislao tiró el pucho al piso y lo pisó.
+
+—Es fácil decirlo, Julián. Pero cuando te pasa una y otra vez…
+
+—Lo sé. Y te va a pasar de nuevo. Muchas veces. Pero mirá a tu alrededor: los que dejaron de intentar, ¿están mejor? ¿El Chino que cobra tres planes y se rasca todo el día, está más feliz que vos? ¿Ramiro, que ya no sabe ni para qué se levanta, está viviendo la vida que quería?
+
+—No.
+
+—Exacto. El pobrecito se queda quieto porque cree que moverse no sirve. Y al quedarse quieto, termina siendo lo que le dijeron que era. El que sigue intentando, aunque le vaya mal diez veces, al menos no se convierte en eso.
+
+---
+
+Esa noche, Estanislao no pudo dormir. Se quedó mirando el techo rajado de su pieza, escuchando los ruidos del barrio: una cumbia a lo lejos, un perro que ladraba sin ganas, el viento moviendo las chapas del vecino.
+
+Abrió el cuaderno y escribió:
 
 "Hoy me robaron un laburo justo.
 Hoy casi me roban también las ganas de seguir intentando.
-Julián dice que el segundo robo es peor que el primero."
+Julián dice que el segundo robo es peor que el primero.
+Porque si me roban el laburo, pierdo plata.
+Pero si me roban las ganas, me pierdo a mí."
+
+Debajo, agregó:
+
+"El estado mental del pobrecito:
+– Creer que no podés
+– Dejar de intentar
+– Confirmar que no podés
+– Quedarte quieto
+– Esperar que alguien te rescate
+– Agradecerle al que te rescata
+– Depender de él para siempre
+
+Eso no es ayuda. Es una trampa con forma de abrazo."
 
 ---
 
@@ -802,69 +875,196 @@ Julián dice que el segundo robo es peor que el primero."
 
 El edificio no tenía nada que ver con el barrio de Estanislao.
 
-Vidrios espejados, recepción con mármol frío, olor a perfume caro y desinfectante. El logo de la empresa, en acero pulido:
+Vidrios espejados que reflejaban el cielo gris de la mañana. Recepción con mármol frío, tan pulido que podías ver tu reflejo en el piso. Olor a perfume caro mezclado con desinfectante de hospital. Aire acondicionado a temperatura de heladera, después del viaje en colectivo lleno de sudor y apretujones.
+
+El logo de la empresa brillaba en acero pulido sobre la pared del fondo:
 
 **"Grupo Alborada – Construyendo Futuro."**
 
+Estanislao se sentía fuera de lugar. Su remera de fútbol trucha, sus zapatillas gastadas, sus manos con callos de trabajo. A su alrededor, gente con trajes, con carteras de cuero, con relojes que probablemente costaban más que todo lo que había en su casa.
+
 Estaban en el hall, esperando una charla "motivacional" abierta al público. La Escalera tenía un cupo limitado de invitaciones; Julián había insistido en que algunos fueran a "ver el otro mundo".
 
-El título del encuentro era:
+—¿Por qué me trajiste acá? —le preguntó Estanislao en voz baja—. Esto no es para gente como yo.
+
+Julián lo miró de costado.
+
+—Justamente por eso. Quiero que veas cómo hablan los que deciden sobre tu vida sin conocerte.
+
+El título del encuentro estaba proyectado en una pantalla gigante:
 
 "CONFERENCIA: 'EL FIN DEL MÉRITO Y LA NUEVA EQUIDAD'
 Ponente: Tomás Alborada (Director Ejecutivo – Grupo Alborada)"
 
-El empresario joven subió al escenario con camisa impecable.
+El empresario joven subió al escenario con camisa impecable, sonrisa de publicidad, pelo engominado. Tenía la seguridad de alguien que nunca había tenido que preguntarse si iba a poder comer mañana.
 
-—Amigos, estamos viviendo una época nueva. El viejo mundo del **mérito individual** está en crisis. Ya no se trata de que "el mejor" gane todo. Eso es injusto, es excluyente.
+—Amigos, estamos viviendo una época nueva —comenzó, con voz ensayada—. El viejo mundo del **mérito individual** está en crisis. Ya no se trata de que "el mejor" gane todo. Eso es injusto, es excluyente. Tenemos que repensar nuestros paradigmas.
 
-Julián cruzó los brazos. No sonreía.
+Estanislao miró a Julián. Este tenía los brazos cruzados y no sonreía.
 
-Después de la charla, Estanislao escuchó a un grupo de ejecutivos hablando cerca:
+—¿Qué significa "meritocracia"? —continuó el empresario—. Significa premiar al que más se esfuerza. Suena bien, ¿no? Pero hay un problema: no todos parten del mismo lugar. Hay gente que nace con ventajas, y gente que nace sin nada. Premiar el esfuerzo sin considerar eso es profundamente injusto.
 
-—Lo importante es que la narrativa cale. La gente está cansada del relato del mérito. Quiere contención.
+Aplausos tibios en la sala.
 
-—Claro. Vos les decís que "todos valen lo mismo", y después, en la práctica, ponés a tus sobrinos en los puestos buenos. Pobrecitos si no, ¿en qué trabajan?
+—Por eso, en nuestra empresa, hemos decidido abandonar el modelo meritocrático tradicional. Ya no buscamos "los mejores". Buscamos diversidad. Buscamos inclusión. Buscamos darle oportunidades a los que el sistema dejó afuera.
 
-El discurso contra el mérito, en boca de gente que nunca había pisado un barrio como el suyo, sonaba aún más obsceno.
+Más aplausos, esta vez más fuertes.
+
+Estanislao se inclinó hacia Julián.
+
+—¿Y eso no está bien? Darle oportunidades a los que quedaron afuera…
+
+Julián no despegó los ojos del escenario.
+
+—Escuchá bien lo que dice. Y después mirá lo que hace.
+
+---
+
+Después de la charla, hubo un cóctel en el hall. Copas de champagne, bocaditos de salmón, gente hablando de "impacto social" y "responsabilidad empresaria".
+
+Estanislao se quedó en una esquina, incómodo. Aceptó una copa porque se la pusieron en la mano, pero no la tomó.
+
+Cerca de él, un grupo de ejecutivos hablaba en voz alta, sin darse cuenta de que lo escuchaban.
+
+—Muy buena la charla de Tomás, ¿no?
+
+—Impecable. La narrativa de "fin del mérito" vende muy bien. La gente está cansada de sentirse culpable por no progresar. Quiere que le digan que no es su culpa.
+
+—Claro. Vos les decís que "todos valen lo mismo", y después, en la práctica, ponés a tus sobrinos en los puestos buenos. ¿O vos creés que el hijo de Tomás va a empezar de repositor como cualquier hijo de vecino?
+
+Risas.
+
+—Pobrecitos los que se creen el cuento. Pero mejor para nosotros. Mientras ellos se quedan esperando que el Estado les dé, nosotros seguimos armando negocios.
+
+Estanislao sintió que la sangre le hervía. El discurso contra el mérito, en boca de gente que nunca había pisado un barrio como el suyo, que nunca había tenido que elegir entre comer o pagar la luz, sonaba obsceno. Era como un ladrón explicándote por qué robar está bien.
+
+Julián se le acercó.
+
+—¿Entendés ahora?
+
+—Entiendo que son unos hijos de puta.
+
+—Sí. Pero eso ya lo sabías. Lo que quiero que entiendas es otra cosa: ellos hablan de "no exigir mérito" porque les conviene que vos no intentes. Porque si vos intentás, competís. Y si competís, les sacás mercado. Les sacás poder. Les sacás el monopolio de decidir quién progresa y quién no.
+
+Hizo una pausa.
+
+—La teoría del pobrecito no la inventaron los pobres, Estani. La inventaron los que necesitan que los pobres se queden quietos.
+
+---
+
+De vuelta en el colectivo, Estanislao miraba por la ventanilla las calles que iban cambiando. Del centro de vidrio y mármol, a los edificios viejos, a las casas bajas, a las calles de tierra, a su barrio.
+
+—Te voy a confesar algo —dijo Julián, sentado a su lado—. Yo antes era como ellos.
+
+Estanislao lo miró, sorprendido.
+
+—¿Qué?
+
+—Nací con plata. Fui a colegios privados. Estudié en universidades caras. Mis padres tenían campos, empresas. Yo era de los que hablaban de "ayudar a los pobrecitos" mientras tomaba champagne en un cóctel.
+
+—¿Y qué pasó?
+
+Julián se quedó callado un momento.
+
+—Un día me di cuenta de que mi "ayuda" era una forma de mantenerlos donde estaban. Que cuando les decía "pobrecito, no es tu culpa, yo te voy a cuidar", en realidad les estaba diciendo "quedáte ahí abajo, que yo sigo arriba". Y me dio asco. De mí mismo.
+
+Miró por la ventanilla.
+
+—Por eso estoy acá. No para "salvar" a nadie. Para decirles lo que nadie les dice: que pueden. Que tienen que intentar. Que el sistema es una mierda, pero quedarse quieto no lo arregla. Lo perpetúa.
 
 ---
 
 Esa misma semana, la muerte llegó al barrio.
 
-Un cuerpo tapado con una sábana blanca en la esquina. Era el primo del Negro, el mismo que había entrado al depósito gracias a la familia… y al parecer también había querido probar suerte con el "progreso rápido".
+Era un sábado a la tarde. Estanislao estaba en la casa, ayudando a la abuela a limpiar, cuando escuchó los gritos.
 
-—Pobrecito… —dijo alguien en la multitud—. Era buen pibe, solo quería salir a flote.
+Salió corriendo.
 
-Estanislao sintió que la frase le explotaba en la cabeza.
+En la esquina, un tumulto. Gente amontonada. Una ambulancia que llegaba tarde. Un cuerpo tapado con una sábana blanca sobre el asfalto caliente.
+
+Era el primo del Negro, el mismo que había entrado al depósito gracias a la familia. Tenía veintidós años. Sonrisa fácil, siempre haciendo chistes. La semana pasada lo había cruzado en el kiosco de Don Hugo y le había dicho: "Mirá, Estani, ahora sí voy a salir adelante. Conseguí un laburito extra que paga bien".
+
+El "laburito extra" había sido el Camino B. La misma oferta que le habían hecho a Estanislao. Repartidor de cosas que no eran pizzas.
+
+—¿Qué pasó? —preguntó Estanislao a una vecina que lloraba.
+
+—Pobrecito… —dijo ella, secándose los ojos—. Lo agarraron en una entrega. Parece que hubo un problema con otro grupo. Le pegaron dos tiros en la cabeza.
 
 **Pobrecito.**
 
-Otra vez esa palabra, ahora pegada a una sábana blanca sobre el asfalto.
+Estanislao sintió que la palabra le explotaba en la cabeza.
+
+Pobrecito. Era buen pibe. Solo quería salir a flote. Pobrecito.
+
+La misma palabra que usaban para consolar, para justificar, para evitar preguntas incómodas. El primo del Negro había sido "pobrecito" toda su vida. Pobrecito porque nació en el barrio. Pobrecito porque no tuvo oportunidades. Pobrecito porque el sistema lo dejó afuera. Y ahora era "pobrecito" debajo de una sábana blanca.
+
+Pero nadie preguntaba: ¿quién le vendió la idea de que el único camino era el atajo? ¿Quién le dijo que esforzarse no valía la pena? ¿Quién lo convenció de que ser "pobrecito" era su destino, y que la única salida era el riesgo extremo?
+
+Ramiro apareció a su lado, pálido.
+
+—Ese podría haber sido yo —dijo en voz baja—. O vos.
+
+Estanislao no respondió. Se quedó mirando la sábana blanca hasta que se la llevaron.
+
+Esa noche, en el cuaderno, escribió:
+
+"Hoy vi morir a alguien que quiso dejar de ser pobrecito por el camino corto.
+El Camino B tiene final.
+Y el final es una sábana blanca.
+La teoría del pobrecito te da dos opciones:
+quedarte quieto para siempre, o arriesgar todo de golpe.
+Ninguna de las dos es vida."
 
 ---
 
 # Capítulo 8 – Primer Peldaño
 
-El aula estaba más llena de lo habitual. Era noche de examen.
+El aula de La Escalera estaba más llena de lo habitual. Era noche de examen.
+
+El olor a café quemado, a transpiración nerviosa, a miedo. Las luces fluorescentes zumbaban con ese ruido constante que a Estanislao siempre le parecía el sonido de la ansiedad.
 
 En el pizarrón, Julián había escrito:
 
 "TRANQUILOS: NADIE SE MUERE POR UN EXAMEN.
 (PERO ALGUNOS EMPIEZAN A VIVIR DISTINTO DESPUÉS DE UNO)."
 
-Estanislao respiraba hondo. Hacía años que no se sentaba frente a un examen "de verdad".
+Estanislao respiraba hondo. Hacía años que no se sentaba frente a un examen "de verdad". El último había sido en tercer año, antes de dejar el secundario para trabajar. Se acordaba de la vergüenza de entregar la hoja casi en blanco, de la mirada del profesor que ya ni siquiera se molestaba en decepcionarse.
 
-Las consignas no eran imposibles. Había una pregunta que se parecía demasiado a su propia vida:
+Pero esta vez era distinto. Esta vez había estudiado. Había leído los textos que Julián les daba, había subrayado frases, había anotado preguntas en el margen. No porque alguien lo obligara, sino porque quería entender.
+
+A su lado, Daniela movía la pierna con nerviosismo. El Toto se mordía las uñas. Mirta tenía los ojos cerrados, como si rezara.
+
+—Las hojas están boca abajo —dijo Julián—. Cuando les diga, las dan vuelta. Tienen dos horas. No se miren entre ustedes, no busquen en el celular. Si no saben algo, escriban lo que piensan. Acá no hay respuestas perfectas. Hay razonamientos honestos.
+
+Silencio.
+
+—Empiecen.
+
+Estanislao dio vuelta la hoja. Las consignas no eran imposibles, pero tampoco eran fáciles. Había una pregunta que se parecía demasiado a su propia vida:
 
 "Explique con sus palabras qué significa 'responsabilidad personal en un sistema injusto'. ¿Qué puede y qué no puede hacer una persona frente a estructuras que no controla?"
 
+Se quedó mirando la pregunta un rato largo. Pensó en el primo del Negro. Pensó en el puesto del depósito que le robaron. Pensó en el empresario del traje hablando de "fin del mérito" mientras sus hijos iban a colegios de elite.
+
 Escribió despacio:
 
-"Responsabilidad personal no es creer que uno maneja todo, sino que maneja algo. En un sistema injusto, hay cosas que no dependen de mí: quién es hijo de quién, qué decide el político. Pero sí depende de mí qué hago con lo que me toca: si uso la injusticia como excusa para dejar de intentar, o como combustible para no convertirme en lo mismo que critico."
+"Responsabilidad personal no es creer que uno maneja todo, sino que maneja algo. En un sistema injusto, hay cosas que no dependen de mí: quién es hijo de quién, qué decide el político, qué oportunidades te dan o te sacan. Yo no elegí nacer en este barrio. No elegí que mi viejo se fuera. No elegí que el país esté como está.
+
+Pero sí depende de mí qué hago con lo que me toca. Si uso la injusticia como excusa para dejar de intentar, o como combustible para no convertirme en lo mismo que critico.
+
+El sistema quiere que me quede quieto. Quiere que diga 'pobrecito yo, no puedo hacer nada'. Porque cuando me quedo quieto, no molesto. No compito. No cuestiono.
+
+Pero si me muevo, aunque sea un paso, aunque falle diez veces, estoy demostrando que la teoría del pobrecito es mentira. Que sí se puede intentar. Que no estamos condenados.
+
+Responsabilidad personal es eso: hacerme cargo de lo que sí puedo, aunque el mundo se empeñe en decirme que no puedo nada."
+
+Siguió escribiendo hasta que se le acalambró la mano. Cuando terminó, le quedaban veinte minutos. Leyó lo que había escrito y, por primera vez en mucho tiempo, sintió que sus palabras valían algo.
 
 ---
 
 Una semana después, volvieron a La Escalera para ver las notas.
+
+El pizarrón estaba lleno de nombres y números. Estanislao buscó el suyo con el corazón acelerado.
 
 "ESTANISLAO G. – 8"
 
@@ -872,48 +1072,205 @@ Se quedó mirándolo como si fuera un error tipográfico.
 
 Ocho. No un diez milagroso, no un cuatro de lástima. Un ocho. Bueno, sólido, merecido.
 
-Julián se le acercó.
+Daniela, a su lado, tenía un siete. El Toto, un cinco raspando. Mirta, un nueve.
+
+—¡Un nueve, Mirta! —gritó alguien—. ¡La señora de la lavandina es la más inteligente!
+
+Mirta se puso colorada, pero sonreía. Era la primera vez que alguien la felicitaba por algo que no fuera limpiar bien.
+
+Julián se le acercó a Estanislao.
 
 —No me mires a mí. Lo escribiste vos.
 
 —Pensé que me iba a ir peor.
 
-—Pensar no es saber. Por eso hacemos exámenes.
+—Pensar no es saber. Por eso hacemos exámenes. Para descubrir lo que ya teníamos adentro pero no nos animábamos a creer.
 
-Estanislao sintió algo nuevo: orgullo sin culpa.
+Estanislao sintió algo nuevo. Algo que no sabía nombrar pero que le llenaba el pecho. Era orgullo, pero sin culpa. Era satisfacción, pero sin arrogancia. Era la sensación de que, por primera vez en mucho tiempo, había hecho algo bien. No porque alguien se lo regalara, no porque tuviera suerte, sino porque se había esforzado.
+
+—¿Sabés qué es lo más importante de ese ocho? —le preguntó Julián.
+
+—¿Qué?
+
+—Que ahora sabés que podés. Y eso no te lo saca nadie.
+
+---
+
+Esa noche, de vuelta en su pieza, Estanislao abrió el cuaderno.
+
+Había algo distinto en el aire. No era solo el ocho en el examen. Era algo más profundo. Una grieta en la pared del "no puedo" que había construido durante años.
+
+Escribió:
+
+"Hoy saqué un ocho.
+No es un diez. No soy un genio.
+Pero es un ocho que me gané.
+Sin que nadie me lo regale.
+Sin que nadie me diga 'pobrecito, te apruebo porque me das lástima'.
+Un ocho limpio.
+
+Y ahora sé algo que no sabía antes:
+puedo estudiar.
+Puedo aprender.
+Puedo sentarme frente a una hoja y escribir algo que vale.
+
+El estado mental del pobrecito dice: 'no podés, no intentes'.
+Pero hoy intenté. Y pude.
+Eso no arregla el país. No arregla el barrio. No arregla mi vida.
+Pero es un primer peldaño.
+Y los escalones se suben de a uno."
 
 ---
 
 # Capítulo 9 – Los Que Cuidan Demasiado
 
-El taller quedaba a veinte minutos en colectivo, en una zona rara: ni barrio pobre ni centro elegante.
+El taller quedaba a veinte minutos en colectivo, en una zona rara: ni barrio pobre ni centro elegante. Casas bajas con jardincitos prolijos, algunos talleres mecánicos, una iglesia evangélica, una escuela con las paredes pintadas de colores.
 
-El cartel decía:
+Estanislao había visto el cartel en el tablón de La Escalera:
 
 "TALLER GRIETA – METAL, MADERA Y LOCURAS.
-(BUSCAMOS GENTE CON GANAS DE APRENDER)."
+(BUSCAMOS GENTE CON GANAS DE APRENDER.
+NO IMPORTA LO QUE SEPAS. IMPORTA LO QUE QUIERAS SABER.)"
 
-Golpeó la puerta de chapa. Le abrió un hombre de unos cuarenta y pico, delgado, con barba desprolija y ojos cansados pero vivos. Las manos marcadas por el trabajo.
+Julián se lo había señalado una semana antes.
 
-—¿Qué buscás?
+—Conozco al dueño. Se llama Mauro. Es un tipo especial. No te va a regalar nada, pero te va a enseñar todo.
 
-—Vi el papel… lo del taller. Buscan gente.
+—¿Qué hacen ahí?
 
-El hombre lo miró unos segundos.
+—De todo. Muebles, estructuras metálicas, reparaciones. Lo que caiga. Es un taller chico, pero honesto. Y Mauro tiene una regla: nada de pobrecitos.
 
-—Pasá. Soy Mauro.
+Ahora Estanislao estaba parado frente a la puerta de chapa, con el corazón acelerado. No sabía por qué estaba nervioso. Era solo un taller. Pero algo en la posibilidad de un trabajo real, de aprender algo útil, le generaba más miedo que esperanza.
 
-Adentro, el taller era un caos ordenado: máquinas, bancos de trabajo, tablas, piezas de metal.
+Golpeó la chapa. El ruido metálico rebotó en el aire caliente de la tarde.
 
-—Antes laburaba en una metalúrgica grande. Un día me cansé de que los jefes me traten como si fuera parte de la máquina y me vine a armar esto. No es mucho, pero es mío.
+Le abrió un hombre de unos cuarenta y pico. Delgado, con barba desprolija canosa, ojos cansados pero vivos. Las manos estaban marcadas por el trabajo: callos, cicatrices pequeñas, uñas con restos de pintura y grasa.
+
+—¿Qué buscás? —preguntó, sin sonreír pero sin hostilidad.
+
+—Vi el papel en La Escalera. Lo del taller. Dice que buscan gente.
+
+El hombre lo miró de arriba abajo. No con desprecio, sino con curiosidad. Como evaluando algo que no era visible a simple vista.
+
+—¿Cómo te llamás?
+
+—Estanislao.
+
+—Julián me habló de vos. Pasá. Soy Mauro.
+
+---
+
+Adentro, el taller era un caos ordenado. Máquinas de todo tipo: sierras, tornos, soldadoras. Bancos de trabajo cubiertos de viruta y herramientas. Tablas apiladas contra una pared, piezas de metal en diferentes estados de construcción. El olor era una mezcla de serrín, grasa de máquina y café recalentado.
+
+Mauro le hizo un tour rápido, señalando cada zona.
+
+—Acá se corta. Acá se suelda. Acá se pinta. Acá se arma. Y acá —señaló una mesita con una cafetera vieja y unas sillas desparejas— se descansa y se piensa. Las dos cosas son igual de importantes.
+
+Estanislao miraba todo con ojos de niño en una juguetería. Nunca había estado en un lugar así. Nunca había tocado una soldadora, nunca había visto cómo se daba forma al metal.
+
+—¿Vos sabés hacer algo de esto? —preguntó Mauro.
+
+—Nada. Bueno, sé andar en moto. Y cambiar la rueda de una bici.
+
+Mauro se rió por primera vez. Una risa corta, sincera.
+
+—Algo es algo. Mirá, yo antes laburaba en una metalúrgica grande. De esas que tienen doscientos empleados y todo automatizado. Buenos sueldos, beneficios, sindicato. Pero un día me cansé de que los jefes me traten como si fuera parte de la máquina. Como si yo fuera un engranaje más que podían cambiar cuando quisieran.
+
+Se sentó en uno de los bancos de trabajo, invitando a Estanislao a hacer lo mismo.
+
+—Así que me vine a armar esto. No es mucho, pero es mío. Cada mesa que sale de acá tiene mi nombre. Cada estructura, cada reparación. No soy rico, pero soy dueño de mi trabajo. Y eso vale más que cualquier sueldo.
 
 —¿Y qué haría yo acá?
 
-—De todo un poco. Limpiar, aprender a usar las máquinas, ayudar con los pedidos. No te voy a mentir: no es plata grande. Pero pago en fecha y no me interesa si sos sobrino de nadie.
+—De todo un poco. Limpiar al principio, porque todos empiezan limpiando. Después, aprender a usar las máquinas. Ayudar con los pedidos. Ir creciendo. No te voy a mentir: no es plata grande. Al principio vas a ganar menos que haciendo delivery. Pero pago en fecha, te enseño un oficio, y no me interesa si sos sobrino de nadie.
 
-Se secó las manos en un trapo.
+Hizo una pausa, mirándolo fijo.
 
-—Eso sí: acá no hay "pobrecitos". Si venís, venís a aprender y a romperte el lomo. No a quejarnos de que el mundo es injusto mientras miramos el celular.
+—Eso sí: acá no hay "pobrecitos". Si venís, venís a aprender y a romperte el lomo. No a quejarnos de que el mundo es injusto mientras miramos el celular. Yo sé que el mundo es injusto. Lo vivo todos los días. Pero quejarse no paga las cuentas. Trabajar sí.
+
+Estanislao sintió un nudo en la garganta. Nadie le había hablado así antes. Nadie le había ofrecido un trato tan claro: esfuerzo a cambio de aprendizaje, sin promesas mágicas, sin paternalismo.
+
+—¿Cuándo empiezo?
+
+Mauro sonrió.
+
+—Mañana a las ocho. Traé ropa que se pueda ensuciar. Y puntualidad. Si llegás tarde, no entres.
+
+---
+
+Esa noche, Estanislao volvió a su casa con una sensación extraña. No era felicidad exactamente. Era algo más parecido a la esperanza, pero con los pies en la tierra.
+
+La madre lo esperaba con la cena lista. Guiso de lentejas, el de siempre.
+
+—¿Y? ¿Conseguiste algo? —preguntó, sirviéndole un plato.
+
+—Sí. Un laburo en un taller. Empiezo mañana.
+
+—¿Cuánto paga?
+
+—Poco. Menos que las changas.
+
+La madre frunció el ceño.
+
+—¿Y entonces para qué vas a ir? Pobrecito, no te dejes explotar.
+
+Ahí estaba otra vez. La palabra. **Pobrecito.**
+
+—No es explotación, ma. Es aprendizaje. Voy a aprender un oficio. A hacer cosas con las manos. A no depender de que alguien me preste una moto o me tire una changa.
+
+—Pero mientras tanto, ¿cómo pagamos las cuentas?
+
+—Sigo haciendo algunas changas a la tarde. Y con lo que gane en el taller, algo entra.
+
+La madre movió la cabeza, no del todo convencida.
+
+—No sé, Estani. Me parece que te están vendiendo humo. Estos tipos que te dicen "vas a aprender" y después te tienen de esclavo…
+
+—No es así, ma. Este es distinto.
+
+—Eso dicen todos.
+
+Estanislao se quedó callado un momento. Entendía la desconfianza de su madre. Había visto demasiada gente aprovecharse de otros. Había visto promesas vacías, jefes que explotaban, patrones que desaparecían cuando había que pagar.
+
+Pero también entendía algo que ella no podía ver: que seguir haciendo lo mismo iba a llevarlo al mismo lugar. Que las changas no tenían futuro. Que el Camino A (pobrecito para siempre) y el Camino B (plata sucia) eran callejones sin salida.
+
+El taller de Mauro era el Camino C. El difícil. El lento. El que no prometía nada rápido. Pero era el único que podía llevarlo a algún lado distinto.
+
+—Ma, te voy a pedir algo —dijo, mirándola a los ojos—. Dejáme intentar. Si en tres meses veo que me están cagando, lo dejo. Pero dejáme probar.
+
+La madre suspiró.
+
+—Hacé lo que quieras, nene. Vos sos grande. Pero después no digas que no te avisé.
+
+---
+
+La abuela, que había estado escuchando desde la otra pieza, apareció en la puerta de la cocina.
+
+—Yo creo que está bien —dijo, con voz suave—. Que el nene aprenda algo. Que se rompa un poco el lomo. Eso hace bien.
+
+—Ay, mamá, vos siempre lo defendés.
+
+—No lo defiendo. Lo entiendo. Yo también quise aprender cosas cuando era joven. Pero en mi época las mujeres no podíamos. Nos decían "pobrecita, para qué vas a estudiar si te vas a casar". Y yo me lo creí. Me quedé quieta. Y mirá dónde estoy.
+
+Se acercó a Estanislao y le puso una mano en el hombro.
+
+—No te quedes quieto, nene. Aunque te digan pobrecito. Aunque te digan que no podés. Intentá. Aunque falle. Intentá.
+
+Estanislao sintió que los ojos se le llenaban de agua, pero no lloró. Se levantó, abrazó a la abuela, y se fue a su pieza.
+
+En el cuaderno, antes de dormirse, escribió:
+
+"Mañana empiezo en el taller.
+No sé si va a salir bien.
+No sé si voy a aguantar.
+No sé si voy a aprender algo.
+Pero voy a intentar.
+
+El estado mental del pobrecito dice: 'para qué, si va a salir mal'.
+Pero la abuela tiene razón.
+Lo peor no es fracasar.
+Lo peor es quedarse quieto.
+Lo peor es ser pobrecito sin haberlo intentado."
 
 ---
 
