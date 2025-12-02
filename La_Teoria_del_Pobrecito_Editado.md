@@ -1794,36 +1794,182 @@ Convirtiéndome en otro mal ejemplo.
 
 La mañana era tranquila. Demasiado tranquila.
 
-Mauro y Estanislao estaban ajustando una estructura de metal para una verdulería del barrio vecino.
+El sol entraba por la ventana sucia del taller, dibujando un rectángulo de luz sobre el piso de cemento. Olía a metal caliente, a café recalentado, a aceite de máquina. Afuera, los perros dormían a la sombra de un árbol seco, y el barrio parecía detenido en una siesta eterna.
 
-—Si logramos que quede firme y barata, capaz el verdulero nos recomienda a otros —decía Mauro.
+Mauro y Estanislao estaban ajustando una estructura de metal para una verdulería del barrio vecino. Era un trabajo simple pero importante: estantes reforzados que aguantaran el peso de las cajones de papa, cebolla, tomate. El verdulero, un tipo bajo y morocho que se llamaba don Néstor, les había pedido algo "firme y barato".
 
-El ruido de una moto interrumpió la frase. Era una del municipio, con calcos oficiales. Detrás venía un auto con logo del Ministerio de Trabajo.
+—Si logramos que quede firme y barata, capaz el verdulero nos recomienda a otros —decía Mauro, mientras soldaba una esquina con concentración de cirujano—. Así funciona esto, Estani. Boca a boca. Un cliente contento vale más que mil carteles.
+
+Estanislao sostenía la estructura, sintiendo el calor de la soldadura en la cara. Le gustaba ese trabajo. Le gustaba la claridad de las cosas: esto está bien, esto está mal. Nada de "depende", "capaz", "vemos". Blanco o negro. Y si estaba mal, se arreglaba.
+
+—¿Cuánto le vas a cobrar? —preguntó.
+
+—Lo justo. Ni tan poco que parezcamos desesperados, ni tan caro que se vaya con otro. El precio tiene que reflejar la calidad. Y nuestra calidad es buena.
+
+Estanislao asintió. Había aprendido eso de Mauro: el precio no era solo números. Era una declaración de valor. Cobrar poco era decir "no valgo mucho". Cobrar justo era decir "sé lo que hago y merezco que me lo paguen".
+
+---
+
+El ruido de una moto interrumpió la soldadura.
+
+Mauro levantó la cabeza, el visor todavía puesto. La moto era del municipio, con calcos oficiales en los costados. Detrás venía un auto con logo del Ministerio de Trabajo, los vidrios polarizados, la pintura demasiado brillante para esta calle de tierra.
+
+—Mierda —murmuró Mauro, bajando el visor.
+
+Estanislao sintió un nudo en el estómago. Había aprendido a reconocer ese tipo de visitas. Nunca venían a felicitarte.
 
 Bajaron cuatro personas:
 
-- El inspector municipal.
-- Una funcionaria provincial.
-- Omar, el delegado del gremio metalúrgico.
-- Un "técnico" que miraba todo con ojos de escribano.
+El primero era el inspector municipal, un tipo gordo con camisa sudada y carpeta bajo el brazo. Lo habían visto antes. Siempre encontraba algo.
 
-—Buen día. Venimos en el marco del nuevo acuerdo. Queremos verificar si se ha ajustado a las normas.
+La segunda era una funcionaria provincial, una mujer flaca con traje gris y cara de aburrimiento. Hablaba con tono de quien está acostumbrada a que la obedezcan.
+
+El tercero era Omar, el delegado del gremio metalúrgico. Lo conocían del barrio. Había sido obrero, dicen. Ahora era otra cosa.
+
+El cuarto era un "técnico" que nadie presentó. Miraba todo con ojos de escribano, anotando en un cuadernito negro.
+
+—Buen día —dijo el inspector, sin sonreír—. Venimos en el marco del nuevo acuerdo entre municipio, provincia y gremio. Queremos verificar si el taller se ha ajustado a las normas establecidas.
+
+Mauro se sacó los guantes, despacio.
+
+—¿Qué normas?
+
+—Las que firmó el intendente la semana pasada. ¿No se enteró? Hubo una conferencia de prensa. "Pacto por la Formalización del Trabajo en San Aurelio". Muy emotivo. Salió en todos los canales.
+
+Mauro no contestó. Estanislao notó que le temblaba un músculo en la mandíbula.
+
+---
 
 El recorrido por el taller fue minucioso.
 
-—Ese cable suelto, peligroso.
-—Extintor vencido.
-—No vemos plano de evacuación.
-—El compañero sigue sin estar encuadrado en nuestro convenio.
+El inspector caminaba despacio, mirando cada rincón con la misma expresión de alguien que busca cucarachas en una cocina. La funcionaria lo seguía, tomando notas. Omar se quedaba atrás, con las manos en los bolsillos, como si todo eso no tuviera nada que ver con él.
 
-Al final, dejaron un acta:
+—Ese cable suelto —señaló el inspector—. Peligroso. Riesgo de electrocución.
+
+—Lo iba a arreglar esta semana —dijo Mauro.
+
+—Eso dicen todos. Pero mientras tanto, si alguien se electrocuta, ¿quién responde?
+
+Siguieron caminando.
+
+—Extintor vencido —dijo la funcionaria, tocando el cilindro rojo con un dedo—. Esto es una falta grave. En caso de incendio, no serviría de nada.
+
+—Tengo otro adentro —dijo Mauro.
+
+—¿Tiene certificado de la empresa habilitada?
+
+Silencio.
+
+—No vemos plano de evacuación —agregó el inspector—. Eso es obligatorio desde el año pasado. ¿Tiene uno?
+
+—Somos dos personas. La puerta está ahí.
+
+—No importa. La norma dice plano de evacuación. Sin plano, hay multa.
+
+Omar, finalmente, habló:
+
+—Y el compañero —señaló a Estanislao— sigue sin estar encuadrado en nuestro convenio. Eso es trabajo no registrado. Es ilegal.
+
+Mauro apretó los puños.
+
+—Está aprendiendo. Le pago lo que puedo. Cuando el taller crezca, lo blanqueo.
+
+—"Cuando crezca" —repitió Omar, con una sonrisa fina—. ¿Y mientras tanto qué? ¿El compañero no tiene derechos? ¿No merece obra social, aportes, vacaciones?
+
+—Le pago más de lo que ganaría en negro en cualquier otro lado.
+
+—Pero no está encuadrado. Y si no está encuadrado, no existe. Y si no existe, usted lo está explotando.
+
+La palabra quedó flotando en el aire: **explotando**.
+
+Estanislao quiso decir algo. Decir que él estaba ahí porque quería. Que Mauro le enseñaba, le pagaba, lo trataba bien. Que esto no era explotación, era oportunidad.
+
+Pero no dijo nada. Porque sabía que no importaba lo que dijera. La visita no venía a escuchar.
+
+---
+
+Al final, dejaron un acta.
+
+El inspector la llenó con letra prolija, enumerando cada falta encontrada. La funcionaria la firmó con gesto aburrido. Omar puso un sello del gremio en una esquina.
 
 "INTIMACIÓN FINAL ANTES DE CLAUSURA"
+
 Plazo: diez días.
 
-Cuando se fueron, Mauro apoyó las manos en la mesa.
+Requisitos:
 
-—No nos quieren legales, Estani. Nos quieren desaparecidos… o alineados.
+1. Regularización del empleado no registrado.
+2. Certificación de todos los extintores.
+3. Instalación de plano de evacuación.
+4. Reparación de instalación eléctrica por empresa habilitada.
+5. Pago de multas acumuladas.
+
+Total estimado: un número que Mauro miró en silencio, con los ojos vacíos.
+
+Era más de lo que ganaba en tres meses.
+
+---
+
+Cuando se fueron, el silencio del taller se volvió pesado.
+
+Mauro apoyó las manos en la mesa, la cabeza gacha, los hombros caídos. Estanislao no sabía qué decir. Nunca lo había visto así: derrotado.
+
+—¿Cuánto tenemos en caja? —preguntó, finalmente.
+
+Mauro se rió sin ganas.
+
+—Para pagar eso? Nada. Ni vendiendo todo.
+
+—¿Y si pedimos un préstamo?
+
+—¿A quién? ¿Al banco que me rechazó tres veces? ¿Al municipio que acaba de multarme? ¿A Ríos que me cortó el contrato?
+
+Se dio vuelta, mirando el taller como si lo viera por primera vez.
+
+—No nos quieren legales, Estani. No nos quieren formales. Nos quieren **desaparecidos**. O alineados.
+
+—¿Alineados con quién?
+
+Mauro no contestó. Pero Estanislao entendió.
+
+Con todos. Con el municipio que cobra multas. Con el gremio que cobra cuotas. Con las empresas grandes que no quieren competencia. Con el sistema entero que necesita que los chicos se hundan para que los grandes flotan.
+
+---
+
+Esa noche, en el cuaderno:
+
+"Hoy entendí cómo funciona la trampa.
+
+Te dicen que tenés que formalizarte.
+Te dicen que tenés que cumplir las normas.
+Te dicen que tenés que pagar los impuestos.
+
+Y todo eso suena razonable.
+Hasta que ves los números.
+Hasta que ves que las normas están escritas para los grandes.
+Hasta que ves que 'formalizar' significa ahogarte.
+
+No es que no quieran que existamos.
+Es que no quieren que existamos **sin pagar el peaje**.
+Y el peaje es tan caro que la única forma de pagarlo es hundiéndose o vendiéndose.
+
+Mauro no quiere ninguna de las dos.
+Pero las opciones se están acabando.
+
+La visita de hoy no fue una inspección.
+Fue un mensaje:
+'O entrás al sistema, o te destruimos.'
+
+Y el sistema tiene muchas caras:
+municipio, gremio, empresa, delito.
+Todos distintos.
+Todos iguales.
+Todos quieren lo mismo:
+que te quedes quieto,
+que les pagues,
+que no molestes.
+
+Pobrecito el que intenta otra cosa."
 
 ---
 
@@ -1831,54 +1977,298 @@ Cuando se fueron, Mauro apoyó las manos en la mesa.
 
 La semana siguiente fue una cuerda floja.
 
-Una noche, apareció la moto del auto negro. Se subieron casi pegados al taller.
+Mauro trabajaba el doble para juntar plata. Estanislao lo ayudaba sin cobrar, porque no había con qué pagarle. Los dos sabían que no iban a llegar. Pero ninguno lo decía en voz alta.
+
+El taller se llenó de carteles nuevos: "USAR CASCO", "EXTINTOR", "SALIDA DE EMERGENCIA". Mauro había comprado un extintor usado en una ferretería del fondo, con la fecha de vencimiento raspada. No era legal, pero era algo.
+
+—Si vienen de nuevo, les muestro esto —dijo—. Capaz nos dan más tiempo.
+
+No era un plan. Era una ilusión. Pero era lo único que tenían.
+
+---
+
+Una noche, cuando ya estaban cerrando, se escuchó el motor de un auto.
+
+No era el del municipio. No era el del gremio. Era otro.
+
+El auto negro.
+
+Estanislao lo reconoció antes de verlo. Todos en el barrio lo conocían. Era el auto del Jefe: el que controlaba las cosas que no aparecían en los diarios. Las rutas de la droga. Los kioscos de la noche. Los negocios que se hacían en la oscuridad.
 
 El Jefe bajó sin apuro.
 
-—Mauro. Tenemos que hablar de negocios.
+Era un tipo de unos cuarenta, pelo corto, ropa cara pero sin ostentación. Tenía la cara de alguien que está acostumbrado a que le obedezcan. No gritaba. No amenazaba. No hacía falta.
+
+—Mauro —dijo, como si fueran viejos amigos—. Tenemos que hablar de negocios.
+
+Mauro se secó las manos en un trapo, despacio.
 
 —No hago negocios con vos.
 
-—Te traigo una **oportunidad de reconversión**. Necesito talleres chicos que hagan cosas específicas, discretas. Piezas, compartimentos, modificaciones.
+El Jefe sonrió. Era una sonrisa paciente, casi paternal.
+
+—Sé que estás en un aprieto. Lo del municipio, lo del gremio, lo de Ríos. Todo junto. Es mucha presión para un taller chico.
+
+—Y vos venís a "ayudar".
+
+—Vengo a ofrecerte una **oportunidad de reconversión**. Necesito talleres chicos que hagan cosas específicas. Discretas. Piezas, compartimentos, modificaciones. Nada complicado. Nada que te comprometa demasiado.
 
 Mauro apretó los dientes.
 
 —No voy a trabajar para vos.
 
-El Jefe sonrió, paciente.
+—¿Por qué no? Es trabajo. Es plata. Es seguridad. Si estás conmigo, el municipio te deja en paz. El gremio mira para otro lado. Las multas desaparecen. Es así de simple.
 
-—Si no trabajás con nosotros, te va a ahorcar el Estado o el gremio. Porque **sos un mal ejemplo**: un tipo que demuestra que se puede intentar otra cosa.
+—Es así de sucio.
+
+El Jefe suspiró, como un padre decepcionado.
+
+—Mauro, Mauro. Siempre tan idealista. Pero dejame preguntarte algo: ¿cuánto tiempo más vas a aguantar solo? ¿Cuántas noches más vas a trabajar hasta las doce para llegar a fin de mes? ¿Cuántas veces más vas a decirle a tu familia que "ya va a mejorar"?
+
+No esperó respuesta.
+
+—Mirá a tu alrededor. Los que sobreviven en este país son los que entienden cómo funciona el juego. Los que se adaptan. Los que saben cuándo pelear y cuándo negociar. Vos sos un buen tipo. Pero los buenos tipos, solos, terminan mal.
+
+Mauro lo miró a los ojos.
+
+—Prefiero terminar mal que ser parte de tu cadena.
+
+El Jefe asintió, sin ofenderse.
+
+—Respeto tu posición. Pero quiero que entiendas algo: si no trabajás con nosotros, te va a ahorcar el Estado. O el gremio. O alguno de los otros. Porque **sos un mal ejemplo**. Un tipo que demuestra que se puede intentar otra cosa. Y eso, Mauro, es lo más peligroso que hay.
+
+Se dio vuelta y caminó hacia el auto.
+
+—Pensalo —dijo, antes de subirse—. La oferta sigue en pie. Por ahora.
+
+El motor arrancó. Las luces rojas desaparecieron en la noche.
+
+Mauro se quedó mirando la calle vacía, con las manos todavía apretadas.
+
+—¿Qué vamos a hacer? —preguntó Estanislao.
+
+—Lo que vinimos haciendo. Trabajar. Resistir. No venderme.
+
+—¿Y si no alcanza?
+
+Mauro se dio vuelta, con una sonrisa triste.
+
+—Si no alcanza, al menos voy a saber que lo intenté. Que no me rendí. Que no me volví parte del problema.
+
+Apagó las luces del taller.
+
+—Eso vale más que cualquier negocio con el Jefe.
+
+---
+
+Esa noche, Estanislao no pudo dormir.
+
+Pensaba en las opciones. En las presiones. En la trampa que se cerraba alrededor del taller.
+
+Por un lado, el Estado: multas, normas, papeles, plazos.
+Por otro lado, el gremio: cuotas, encuadramientos, amenazas.
+Por otro lado, el Jefe: plata fácil, protección, silencio.
+
+Y en el medio, Mauro. Solo. Tratando de hacer las cosas bien.
+
+"Los que defienden y los que ofrecen", pensó. "Los que dicen que te cuidan y los que dicen que te ayudan. Pero todos quieren lo mismo: que te rindas. Que aceptes las reglas de su juego. Que dejes de ser un mal ejemplo."
+
+Abrió el cuaderno y escribió:
+
+"Hoy entendí que hay dos tipos de 'ayuda':
+
+La que te hace más fuerte.
+Y la que te hace más dependiente.
+
+El Jefe ofrece la segunda.
+Dice que te va a 'sacar del aprieto'.
+Pero a cambio te convierte en parte de su cadena.
+Y una vez que entrás, no salís.
+
+El Estado ofrece algo parecido.
+'Te vamos a regularizar.'
+'Te vamos a formalizar.'
+Pero las normas están hechas para aplastarte.
+Y si no podés cumplirlas, te convierten en ilegal.
+
+El gremio también.
+'Te vamos a defender.'
+'Te vamos a encuadrar.'
+Pero la cuota es más de lo que podés pagar.
+Y si no pagás, te convierten en enemigo.
+
+Todos dicen que te cuidan.
+Pero todos te cobran el peaje.
+Y el peaje siempre es el mismo:
+dejar de intentar,
+aceptar las reglas,
+quedarte quieto.
+
+Mauro no quiere.
+Yo tampoco.
+
+Pero ¿cuánto tiempo más podemos resistir?"
 
 ---
 
 # Capítulo 16 – Dos Deudas
 
-El taller jamás había estado tan "correcto". Carteles de seguridad en cada pared, extintor nuevo, cascos y gafas alineados.
+El taller jamás había estado tan "correcto".
+
+Carteles de seguridad en cada pared, con letras rojas y dibujos de cascos y gafas. Extintor nuevo, comprado a cuotas con un interés que dolía. Cables ordenados, herramientas etiquetadas, plano de evacuación pegado en la entrada.
 
 Vista rápida: parecía un lugar que "hacía las cosas bien".
 Vista lenta: era un lugar que **apenas respiraba**.
 
-Una noche, apareció la moto del auto negro. Estanislao no pudo negarse:
+Mauro había gastado todo lo que tenía —y lo que no tenía— en cumplir los requisitos del acta. Había pedido plata prestada a un vecino, a un primo, a un viejo cliente que todavía le debía un favor. Había vendido herramientas que no usaba, muebles de la casa, hasta la moto vieja que guardaba como reliquia.
 
-—No es una invitación. El Jefe quiere hablar con vos. Mejor que vayas.
+—Con esto llegamos —había dicho, contando los billetes—. Justo, pero llegamos.
 
-—Una ruta —dijo el Jefe—. Una. Y después no me pedís nada más.
+Pero el plazo se había vencido y la plata no había alcanzado. Faltaba lo del gremio. Faltaba lo de la instalación eléctrica. Faltaba siempre algo.
 
-No fue heroísmo. Fue miedo mezclado con cálculo.
+El taller seguía abierto por pura terquedad. Por esa obstinación de Mauro de no rendirse, de no aceptar que el sistema era más fuerte que él.
 
-La entrega fue un trámite oscuro: bolsa común, timbre, mano que saca, billetes que entran.
+---
 
-La plata no llegó a su bolsillo, pero había pasado por él lo suficiente como para ensuciarle el día.
+Una noche, apareció la moto del auto negro.
+
+Estanislao estaba solo, cerrando. Mauro había ido a buscar un material y tardaba más de lo esperado.
+
+El tipo de la moto bajó con gesto de quien sabe que no va a encontrar resistencia.
+
+—El Jefe quiere hablar con vos —dijo, sin saludar—. No es una invitación. Mejor que vayas.
+
+—¿Ahora?
+
+—Ahora.
+
+Estanislao sintió el miedo subirle por la espalda. Pero también sintió otra cosa: curiosidad. Quería saber qué quería el Jefe de él. Por qué lo buscaba a él y no a Mauro.
+
+Subió a la moto.
+
+---
+
+El auto negro estaba estacionado en una esquina oscura, lejos de las casas, cerca del baldío donde los pibes jugaban al fútbol de día y nadie iba de noche.
+
+El Jefe bajó la ventanilla.
+
+—Estanislao. Subí.
+
+Adentro, el auto olía a cuero y a perfume caro. Había una pantalla encendida mostrando números, un celular vibrando cada dos minutos, una botella de agua mineral importada.
+
+—Tranquilo —dijo el Jefe—. No te voy a hacer nada. Solo quiero charlar.
+
+—¿De qué?
+
+—De vos. De tu futuro. De lo que vas a hacer cuando el taller cierre.
+
+Estanislao apretó los puños.
+
+—El taller no va a cerrar.
+
+El Jefe sonrió.
+
+—Mauro es un buen tipo. Te enseñó mucho. Pero es terco. No entiende que solo no puede. Y cuando el taller cierre —porque va a cerrar, Estanislao, es cuestión de tiempo— vos vas a quedarte sin nada. Sin trabajo, sin título, sin futuro.
+
+—Eso no es asunto tuyo.
+
+—Todo es asunto mío en este barrio. Pero no vine a amenazarte. Vine a ofrecerte algo.
+
+Sacó un sobre del bolsillo. Adentro había billetes. Muchos.
+
+—Una ruta —dijo—. Una sola. Llevás un paquete de acá a allá. No preguntás qué hay adentro. No abrís. No hablás. Tardás dos horas, volvés, te doy esto.
+
+Era más plata de la que Estanislao había visto junta en su vida.
+
+—Y después no me pedís nada más —agregó el Jefe—. Una ruta. Y quedamos a mano.
+
+—¿A mano de qué?
+
+El Jefe lo miró con algo parecido a la lástima.
+
+—Estanislao. Tu taller está en mi territorio. Tu maestro le dijo que no a mi gente. Y vos vivís acá, respirás acá, comés acá. ¿De verdad creés que no me debés nada?
+
+No fue heroísmo lo que hizo que aceptara.
+
+Fue miedo. Miedo a decir que no. Miedo a lo que pasaría si el Jefe se ofendía. Miedo a quedarse solo en ese auto negro, en esa esquina oscura, sin nadie que supiera dónde estaba.
+
+Y también fue cálculo. Una parte de él pensó: "Si hago esto una vez, capaz me dejan en paz. Capaz le dan más tiempo a Mauro. Capaz todo se calma."
+
+—Una vez —dijo.
+
+—Una vez —confirmó el Jefe.
+
+---
+
+La entrega fue un trámite oscuro.
+
+Una bolsa común, de esas que se usan para la basura. Un timbre en una casa sin número, en un barrio que no conocía. Una mano que salía, agarraba la bolsa, dejaba un sobre. Nada de palabras. Nada de caras.
+
+El viaje de vuelta fue silencioso. El tipo de la moto lo dejó en la esquina del taller.
+
+—El Jefe dice que estamos a mano —dijo—. Por ahora.
+
+La plata no llegó a su bolsillo. La dejó sobre la mesa del taller, sin contarla. No quería saber cuánto era. No quería pensar en lo que había hecho.
+
+Pero había pasado por él lo suficiente como para ensuciarle el día. Y la noche. Y todas las noches que vinieron después.
 
 ---
 
 Al día siguiente, el verdulero vino a probar la estructura.
 
-—Es un tanque, maestro. Me aguanta todo.
+Don Néstor llegó temprano, con su camioneta cargada de cajones vacíos. Mauro y Estanislao lo esperaban con la estructura terminada, brillante bajo el sol de la mañana.
 
-Le puso en la mano a Mauro un fajo de billetes chicos.
+—A ver, a ver —dijo el verdulero, golpeando el metal con los nudillos—. Es un tanque, maestro. Me aguanta todo.
 
-No era mucho. Pero era dinero que venía con nombre y factura, no con silencio y esquinas oscuras.
+Cargó los cajones, los acomodó, los movió de lugar. La estructura no se movió ni un milímetro.
+
+—Perfecto —dijo, sonriendo—. Justo lo que necesitaba.
+
+Le puso en la mano a Mauro un fajo de billetes chicos. Billetes gastados, arrugados, que habían pasado por muchas manos.
+
+No era mucho. Pero era dinero que venía con nombre y cara. Dinero que venía de un trabajo honesto, de un cliente satisfecho, de un trato limpio.
+
+Estanislao lo miró y sintió la diferencia.
+
+La plata del Jefe pesaba como piedra. La plata del verdulero pesaba como orgullo.
+
+---
+
+Esa noche, en el cuaderno:
+
+"Hoy tuve dos deudas.
+
+Una con el Jefe.
+Otra con el verdulero.
+
+Las dos se pagaron con plata.
+Pero no eran iguales.
+
+La plata del Jefe vino de algo que no quiero nombrar.
+Me manchó los dedos, la cabeza, el día entero.
+Y aunque ya no la tengo, sigue acá adentro.
+Como una mancha que no se va.
+
+La plata del verdulero vino de algo que puedo mirar.
+Una estructura de metal.
+Un trabajo bien hecho.
+Un cliente contento.
+
+Las dos son plata.
+Pero una es sucia y la otra es limpia.
+Una te hunde y la otra te levanta.
+Una te convierte en parte de la cadena.
+La otra te confirma que hay otro camino.
+
+Mauro tiene razón.
+El Camino C es el más difícil.
+Pero es el único que te deja dormir tranquilo.
+
+El problema es que el sistema no quiere que duermas tranquilo.
+El sistema quiere que te vendas.
+Y cuando no te vendés, te destruye.
+
+¿Qué van a hacer con nosotros cuando se den cuenta de que no vamos a ceder?"
 
 ---
 
@@ -1886,54 +2276,163 @@ No era mucho. Pero era dinero que venía con nombre y factura, no con silencio y
 
 La semana siguiente al "Pacto por los que menos tienen" fue una colección de pequeños sustos.
 
-Una tarde, en el taller casi cerrado, se escuchó el motor del auto negro.
+Primero fue un graffiti en la pared del taller: "TRAIDOR DE CLASE". Letras negras, torpes, con olor a aerosol fresco. Mauro lo limpió sin comentarios, pero Estanislao notó que le temblaban las manos.
 
-El Jefe bajó:
+Después fue un rumor en el barrio: "Dicen que Mauro anda con gente rara. Que le debe plata a no sé quién. Que el taller está para cerrar."
 
-—Mauro. El sistema te quiere cerrar. Nosotros te ofrecemos **oxígeno**.
+Ninguno de los rumores era cierto. Pero eso no importaba. En el barrio, los rumores tenían vida propia. Crecían, se multiplicaban, se convertían en verdad a fuerza de repetición.
 
-Mauro apretó los dientes:
+Una vecina dejó de saludarlo. Un cliente canceló un pedido "por las dudas". El verdulero, que había estado tan contento con su estructura, empezó a pagar con retraso.
+
+—Es el clima —le dijo Mauro a Estanislao—. Están marcando territorio. Quieren que sepa que me están mirando.
+
+—¿Quiénes?
+
+—Todos. El municipio, el gremio, el Jefe. Cada uno a su manera. Pero todos con el mismo mensaje: "Sabemos que estás ahí. Sabemos que seguís intentando. Y no nos gusta."
+
+---
+
+Una tarde, cuando el sol ya bajaba y el taller estaba casi vacío, se escuchó el motor del auto negro.
+
+Estanislao sintió el estómago apretarse. Desde la noche de la ruta, no había vuelto a ver al Jefe. Había esperado que eso fuera todo. Que el "a mano" significara que lo dejaban en paz.
+
+Pero el auto estaba ahí. Y el Jefe bajaba con la misma calma de siempre.
+
+—Mauro —dijo, como si fueran vecinos encontrándose en la vereda—. ¿Cómo va todo?
+
+Mauro dejó la herramienta que tenía en la mano.
+
+—Igual que siempre. Trabajando.
+
+—Sí, eso veo. Trabajando mucho. Pero ¿llegando a algún lado?
+
+No esperó respuesta.
+
+—Mirá, Mauro. Yo te respeto. De verdad. Sos de los pocos que todavía cree en eso de "hacer las cosas bien". Pero tengo que ser honesto con vos: el sistema te quiere cerrar. El municipio, el gremio, los grandes. Todos. Y yo soy el único que puede darte **oxígeno**.
+
+—Ya te dije que no.
+
+—Lo sé. Y por eso estoy acá. Porque quiero que entiendas lo que estás rechazando. No es solo plata, Mauro. Es **protección**. Es saber que nadie te va a tocar. Es poder trabajar tranquilo, sin multas, sin inspecciones, sin rumores.
+
+Mauro lo miró a los ojos.
+
+—¿Y a cambio de qué?
+
+—A cambio de nada complicado. Trabajos específicos. Discretos. Y silencio. Mucho silencio.
+
+Mauro apretó los dientes.
 
 —Prefiero hundirme antes que ser parte de esa cadena.
 
-El Jefe chasqueó la lengua:
+El Jefe suspiró.
 
-—Te admiro. Pero te aviso: eso que vos llamás "hundirte" no va a ser silencioso. En este barrio todo se mira. Si vos te negás y te va mal, van a decir: "¿ven? El que se hace el distinto termina así".
+—Te admiro, Mauro. De verdad. Pero te aviso algo: eso que vos llamás "hundirte" no va a ser silencioso. En este barrio todo se mira. Todo se comenta. Si vos te negás y te va mal, van a decir: "¿Viste? El que se hace el distinto termina así". Y ese mensaje, Mauro, es más poderoso que cualquier tiro.
+
+Se dio vuelta para irse.
+
+—Pensalo bien. Porque la próxima vez que venga, capaz ya no vengo a ofrecer.
 
 ---
 
 Esa misma noche, el barrio se llenó de ruido.
 
-Frenada brusca. Gritos cortos. Un estampido seco.
+Estanislao estaba en su casa, tratando de leer algo para La Escalera, cuando escuchó la frenada brusca. Después, gritos cortos. Y finalmente, un estampido seco que le heló la sangre.
 
-Estanislao corrió.
+Corrió hacia el taller.
 
-La puerta del taller estaba entreabierta. Una de las bisagras colgaba torcida.
+La calle estaba vacía. Los vecinos se asomaban a las ventanas pero nadie salía. Era la ley del barrio: no te metás, no veas nada, no sepas nada.
 
-Dentro, luces encendidas, una herramienta caída.
+La puerta del taller estaba entreabierta. Una de las bisagras colgaba torcida, como si alguien la hubiera empujado con fuerza.
 
-Y en el suelo, boca arriba, Mauro.
+Adentro, las luces estaban encendidas. Una herramienta había caído al piso. El olor a pólvora flotaba en el aire.
 
-El tiro había sido limpio y brutal. Un solo agujero. Sangre que se abría como un mapa imposible.
+Y en el suelo, boca arriba, con los ojos abiertos y una mancha roja extendiéndose debajo del cuerpo, estaba Mauro.
+
+El tiro había sido limpio y brutal. Un solo agujero en el pecho. Sangre que se abría como un mapa imposible sobre el cemento.
 
 Estanislao se quedó congelado en el umbral.
 
-Entendió tres cosas:
+No pudo gritar. No pudo moverse. No pudo pensar.
 
-1. No había sido un robo.
-2. No había sido "una bala perdida".
-3. Era un mensaje para **todos**.
+Solo pudo mirar.
+
+Mirar a Mauro, el tipo que le había enseñado todo. El tipo que nunca se rindió. El tipo que eligió el Camino C aunque supiera que era el más difícil.
+
+Ahora estaba muerto.
+
+Y el mensaje era claro.
 
 ---
 
-El barrio reaccionó como reacciona siempre:
+Entendió tres cosas en ese momento:
+
+1. No había sido un robo. No faltaba nada. Las herramientas, la caja, todo estaba en su lugar.
+
+2. No había sido "una bala perdida". El tiro era demasiado preciso, demasiado limpio, demasiado intencional.
+
+3. Era un mensaje. Un mensaje para **todos**. Para él, para los vecinos, para cualquiera que estuviera pensando en "hacerse el distinto".
+
+---
+
+El barrio reaccionó como reacciona siempre.
+
+A la mañana siguiente, las conversaciones en el kiosco, en la verdulería, en la cola del comedor, eran todas iguales:
 
 —Pobrecito Mauro. Se habrá metido en algo raro.
+—Dicen que debía plata a gente pesada.
 —Te lo dije, Estani. Esa gente de traje no es para nosotros.
+—El que se hace el distinto, termina bajo una sábana.
 
-"¿Viste? El que se hace el distinto, termina bajo una sábana."
+Nadie decía la verdad. Nadie decía que lo habían matado por decir que no. Por resistir. Por demostrar que se podía otra cosa.
+
+Porque decir eso era admitir que el sistema mataba. Y admitir eso era peligroso.
+
+Era más fácil convertirlo en pobrecito. En víctima de sus propios errores. En ejemplo de lo que no hay que hacer.
+
+"¿Viste? El que se hace el distinto, termina así."
 
 El mensaje no era sutil. Era pedagógico.
+
+---
+
+Esa noche, solo en su pieza, Estanislao abrió el cuaderno.
+
+Las manos le temblaban. Los ojos le ardían. Pero necesitaba escribir. Necesitaba poner en palabras lo que sentía, antes de que el miedo lo devorara.
+
+"Hoy mataron a Mauro.
+
+Lo mataron por no venderse.
+Lo mataron por decir que no.
+Lo mataron por ser un mal ejemplo.
+
+Y el barrio ya lo está olvidando.
+Ya lo están convirtiendo en 'pobrecito'.
+'Pobrecito Mauro, se metió en algo raro.'
+'Pobrecito Mauro, no entendió cómo funciona esto.'
+
+Pero yo sé la verdad.
+Lo mataron porque demostró que se podía otra cosa.
+Y eso es intolerable para el sistema.
+
+Porque si Mauro podía, entonces la excusa de 'no se puede' ya no servía.
+Y si la excusa no servía, el sistema se caía.
+
+Por eso lo mataron.
+No por malo.
+Por bueno.
+Por peligroso.
+
+Mauro era un mal ejemplo.
+Y los malos ejemplos, en este país, se eliminan.
+
+Ahora me toca a mí decidir.
+¿Me vuelvo pobrecito y me quedo quieto?
+¿O sigo siendo un mal ejemplo?
+
+No sé la respuesta.
+Pero sé una cosa:
+si me rindo ahora, Mauro murió para nada.
+Y eso no lo puedo permitir."
 
 ---
 
