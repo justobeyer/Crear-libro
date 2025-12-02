@@ -1278,29 +1278,123 @@ Lo peor es ser pobrecito sin haberlo intentado."
 
 El taller olía distinto.
 
-Antes era serrín, metal y café recalentado. Ahora, además, había un perfume nuevo: el de la pintura fresca en una pila de cajas prolijas.
+Antes era serrín, metal y café recalentado. Ahora, además, había un perfume nuevo: el de la pintura fresca en una pila de cajas prolijas, perfectamente apiladas contra la pared del fondo.
 
 **"INDUSTRIAS RÍOS – HECHO EN SAN AURELIO."**
 
-Mauro las miraba como quien mira a un hijo recién nacido.
+El logo azul brillaba bajo la luz del mediodía que entraba por la ventana sucia. Mauro las miraba como quien mira a un hijo recién nacido. Se le notaba en los ojos: una mezcla de orgullo y terror, de esperanza y vértigo.
 
-—Lo conseguimos. Ríos nos dio la chance de hacerles repuestos. Si sale bien, hay más. Si sale mal, volvemos a las mesas de siempre.
+—Lo conseguimos, Estani. Ríos nos dio la chance de hacerles repuestos. Si sale bien, hay más. Si sale mal, volvemos a las mesas de siempre. Pero al menos lo intentamos.
+
+Había sido un proceso largo. Semanas de llamadas, de presupuestos, de ajustar números hasta que cerraran. Mauro había ido tres veces a la fábrica de Ríos, cada vez con el mejor pantalón que tenía y una carpeta con fotos de trabajos anteriores. La tercera vez, finalmente, habían dicho que sí.
+
+—No es un contrato grande —había explicado Mauro al volver—. Son piezas chicas, repuestos que ellos no quieren fabricar porque les sale más caro. Pero para nosotros es oro. Si cumplimos, nos van a seguir pidiendo. Y si nos siguen pidiendo, vamos a poder contratar a alguien más. Crecer de a poco, como tiene que ser.
+
+---
 
 Los días siguientes fueron una mezcla de entusiasmo y agotamiento.
 
-Para Estanislao, el precio se pagaba de noche. Llegaba a La Escalera con las manos vibrando por el ruido de las máquinas, los hombros duros.
+Estanislao aprendió a usar la soldadora de verdad. Ya no solo limpiaba y ordenaba: ahora hacía piezas. Pequeñas, simples, pero piezas. Cada una que salía bien le dejaba una sensación extraña en el pecho: algo parecido al orgullo, pero más terrenal. Era el orgullo de haber hecho algo con las manos, algo que existía, algo que iba a usarse.
+
+Mauro le enseñaba con paciencia, pero sin contemplaciones.
+
+—Está bien, pero mirá acá —señalaba un punto de la soldadura—. ¿Ves que quedó poroso? Eso no sirve. Hay que hacerlo de nuevo.
+
+—Pero se ve bien desde lejos.
+
+—Desde lejos todo se ve bien. El problema es cuando lo usás. Si esto se rompe, el que lo compró va a decir "estos tallercitos de barrio hacen todo mal". Y tiene razón. Nosotros no podemos darnos el lujo de hacer las cosas "más o menos". Somos chicos, no tenemos marca, no tenemos historia. Lo único que tenemos es la calidad. Si eso falla, no somos nada.
+
+Estanislao asintió y volvió a empezar. No le molestaba. Le gustaba, incluso. Había algo liberador en tener un estándar claro: esto está bien, esto está mal. Nada de "capaz", "depende", "vemos". Blanco o negro. Bien o mal. Y si estaba mal, se arreglaba.
+
+Era lo opuesto al mundo del "pobrecito", donde todo era difuso, donde nadie te exigía nada, donde el estándar era "bueno, para lo que tenés, está bien".
+
+---
+
+Para Estanislao, el precio se pagaba de noche.
+
+Llegaba a La Escalera con las manos vibrando por el ruido de las máquinas, los hombros duros como piedras, los ojos pesados de cansancio. A veces se quedaba dormido en medio de la clase de Julián, y despertaba sobresaltado cuando alguien le tocaba el hombro.
+
+—Estás destruido —le dijo Daniela una noche, mientras esperaban el colectivo—. ¿Vale la pena?
+
+—No sé. Creo que sí.
+
+—¿Creer no es poco?
+
+—Es lo que tengo.
+
+Daniela asintió, pensativa. Ella también estaba cansada. Trabajaba todo el día en la verdulería y estudiaba de noche. A veces llegaba con las manos rojas de frío, oliendo a cebolla y papa.
+
+—Sabés qué me dijo mi vieja ayer? —contó—. Me dijo "pobrecita vos, matándote para nada, si al final todo sigue igual". Y yo le dije: "Ma, si sigo igual es porque me quedo quieta. Si me muevo, capaz cambia algo". ¿Sabés qué me contestó?
+
+—¿Qué?
+
+—Me dijo: "Ay, nena, no te hagas la distinta, que después te frustrás". Como si frustrarme fuera lo peor que podía pasarme. Como si quedarse quieta no fuera peor.
+
+Estanislao se quedó pensando en esa frase: "no te hagas la distinta".
+
+Era la versión amable del "quedate en tu lugar". Era el consejo disfrazado de cariño que decía: no intentes, no te expongas, no te arriesgues. Ser distinto es peligroso. Ser pobrecito es seguro.
+
+---
 
 En casa, la situación se volvió tensa.
 
-—No podés seguir así, nene —le dijo la madre—. Estás flaco, ojeroso. ¿Para qué? ¿Para que un tipo que ni conocés se haga rico con tu esfuerzo?
+La madre lo esperaba cada noche con la cena lista y una mirada mezcla de preocupación y reproche.
 
-—Gano experiencia. Aprendo algo que no sabía hacer.
+—No podés seguir así, nene —le dijo un viernes, mientras él se sentaba a comer el guiso de siempre—. Estás flaco, ojeroso. Mirá las manos, tenés los dedos cortados. ¿Para qué? ¿Para que un tipo que ni conocés se haga rico con tu esfuerzo?
 
-—Pobrecito, mirá cómo te comés el verso.
+—Mauro no se está haciendo rico, ma. Apenas llega a fin de mes.
+
+—Bueno, pero vos tampoco ganás nada. Te paga dos mangos y te tiene todo el día ahí adentro. Eso es explotación.
+
+—Gano experiencia. Aprendo algo que no sabía hacer. Eso vale.
+
+—¿Vale? ¿Y con eso pagás las cuentas? ¿Con experiencia comprás comida?
+
+Estanislao suspiró. Entendía a su madre. De verdad la entendía. Había trabajado toda su vida limpiando casas ajenas, cuidando hijos ajenos, cocinando para gente que no conocía. Y al final del día, siempre volvía a la misma casa chica, a contar las mismas monedas. Para ella, el trabajo era un mal necesario, algo que se soportaba para sobrevivir. La idea de que el trabajo pudiera ser otra cosa —un aprendizaje, un camino, una construcción— le resultaba ajena.
+
+—Pobrecito, mirá cómo te comés el verso —dijo, moviendo la cabeza—. Te dicen "vas a aprender" y te tienen de esclavo. Es siempre lo mismo.
 
 La palabra otra vez. **Pobrecito.**
 
-—No soy pobrecito, ma. Estoy cansado porque estoy trabajando. Es distinto.
+Estanislao dejó la cuchara sobre el plato, despacio.
+
+—Ma, te voy a decir algo. No soy pobrecito. Estoy cansado porque estoy trabajando. Es distinto.
+
+—¿Distinto cómo?
+
+—Pobrecito es el que se queda quieto esperando que alguien lo salve. Pobrecito es el que acepta las migas porque cree que no merece más. Pobrecito es el que ni siquiera intenta porque ya decidió que va a perder. Yo estoy intentando. Me estoy rompiendo el lomo. Y capaz me va mal, capaz todo esto no sirve para nada. Pero al menos no me voy a quedar sentado mirando cómo pasan los años sin hacer nada.
+
+La madre se quedó callada. No estaba convencida, pero algo en las palabras de Estanislao la había tocado. Capaz porque, en el fondo, ella también había querido intentar cosas. Capaz porque, en algún momento de su vida, también le habían dicho "pobrecita vos, para qué te vas a esforzar".
+
+---
+
+Esa noche, en el cuaderno, Estanislao escribió:
+
+"Hoy me di cuenta de algo.
+La gente que te dice 'pobrecito' no siempre lo hace por maldad.
+A veces lo hace por amor.
+Porque quiere protegerte.
+Porque no quiere que te frustres.
+Porque cree que el mundo es así y no va a cambiar.
+
+Pero esa protección es una trampa.
+Te protegen del fracaso, pero también del éxito.
+Te protegen del dolor, pero también del crecimiento.
+Te mantienen quieto, seguro, sin riesgos.
+Y al mantenerte quieto, te convierten en lo que querían evitar:
+un pobrecito que depende de otros para todo.
+
+La madre me dice 'pobrecito' porque me quiere.
+Pero si le hago caso, voy a ser pobrecito para siempre.
+
+El estado mental del pobrecito no solo viene de afuera.
+También viene de adentro.
+De la voz que dice: 'para qué vas a intentar, si siempre sale mal'.
+De la comodidad de no arriesgarse.
+De la tranquilidad de no exponerse.
+
+Romper eso duele.
+Pero quedarse adentro duele más."
 
 ---
 
@@ -1308,68 +1402,391 @@ La palabra otra vez. **Pobrecito.**
 
 Las cajas con el logo azul dejaron de llegar de un día para el otro.
 
-En la tele, el dueño de Industrias Ríos aparecía frente a las cámaras:
+Fue un martes a la mañana. Mauro esperaba el camión de Industrias Ríos con el pedido de la semana: más piezas, más trabajo, más plata. Había comprado material extra, había reorganizado el taller para aumentar la producción, había calculado que en tres meses podía contratar a alguien más.
 
-—Pobrecitos… Estamos atravesando una situación insostenible. La apertura irresponsable de la economía nos está destruyendo. Si el Estado no nos protege, perdemos nosotros, pierden nuestros trabajadores.
+El camión no llegó.
 
-Mauro dejó el vaso sobre la mesa con demasiada fuerza.
+A las diez, Mauro llamó al teléfono de contacto. Nadie atendió. A las once, mandó un mail. Sin respuesta. A las doce, intentó con el celular del encargado de compras, el tipo con el que había negociado todo. Apagado.
 
-—¿Sabés quiénes son los "seudotalleres"? Nosotros. Los que no tenemos espalda para ser "empresa seria", pero tampoco queremos explotar a nadie.
+—Algo raro está pasando —dijo, con el ceño fruncido.
 
-El mail de Ríos llegó esa tarde:
+Estanislao no quiso decir nada, pero sintió un nudo en el estómago. Había visto esa cara antes. La cara de alguien que espera algo que no va a llegar.
 
-"Por motivos de fuerza mayor, nos vemos obligados a suspender indefinidamente el contrato con todos nuestros proveedores de menor escala."
+---
 
-—"Proveedores de menor escala" somos nosotros —dijo Mauro, amargo—. Pobrecitos nosotros.
+La respuesta llegó por la tele, a las ocho de la noche.
+
+Estaban en el taller, terminando unas mesas para un cliente del barrio, cuando Mauro prendió la radio vieja que tenía sobre el banco de trabajo. En lugar de música, salía un noticiero.
+
+—...la situación es crítica —decía la voz del periodista—. Industrias Ríos, una de las empresas más importantes del sector metalúrgico, anunció hoy un plan de ajuste que incluye la suspensión de contratos con proveedores externos y la reducción de personal.
+
+Mauro subió el volumen.
+
+—...el dueño de la empresa, Carlos Ríos, dio una conferencia de prensa esta tarde. Escuchemos.
+
+La voz de Ríos sonaba grave, ensayada, como la de un político en campaña:
+
+—Pobrecitos de nosotros. Estamos atravesando una situación insostenible. La apertura irresponsable de la economía nos está destruyendo. La competencia desleal de productos importados nos deja sin mercado. Si el Estado no nos protege, perdemos nosotros, pierden nuestros trabajadores, pierde el país.
+
+Mauro dejó el vaso de café sobre la mesa con demasiada fuerza. El líquido se derramó, pero él no lo notó.
+
+—Hijo de puta —murmuró.
+
+—¿Qué pasa? —preguntó Estanislao.
+
+—Pasa que este tipo factura millones y se hace el pobrecito. Pasa que tiene veinte abogados, contactos en el gobierno, subsidios, créditos blandos, y llora por televisión diciendo que está en crisis. Pasa que para "ajustar", lo primero que hace es cortarnos a nosotros, los chicos, los que no tenemos voz ni abogados.
+
+Se levantó, caminó hasta la ventana, miró hacia afuera.
+
+—¿Sabés qué son los "seudotalleres", Estani? —preguntó, sin darse vuelta—. Somos nosotros. Los que no tenemos espalda para ser "empresa seria", pero tampoco queremos explotar a nadie. Los que hacemos las cosas bien, pagamos lo que podemos, y tratamos de crecer de a poco. Para ellos, somos competencia desleal. Para ellos, somos el problema.
+
+Estanislao se quedó callado. No sabía qué decir. Veía a Mauro, el tipo que le había enseñado todo, el tipo que nunca se quejaba, el tipo que siempre decía "hay que seguir", y lo veía derrotado.
+
+—Lo peor —continuó Mauro— es que tienen razón. Tienen razón en que no podemos competir en igualdad de condiciones. Tienen razón en que el sistema está armado para que ellos ganen y nosotros perdamos. Pero la solución no es cerrar la economía. La solución es nivelar la cancha. Que todos paguen los mismos impuestos. Que todos cumplan las mismas normas. Que no haya privilegios para los grandes y trabas para los chicos.
+
+Se dio vuelta, mirando a Estanislao.
+
+—Pero eso no va a pasar. ¿Sabés por qué? Porque los que arman las reglas son los mismos que se benefician de ellas. Ríos tiene amigos en el gobierno. Ríos paga campaña. Ríos pone gente en el ministerio. Y cuando las cosas se ponen difíciles, Ríos llora por televisión y el gobierno lo rescata. Mientras tanto, nosotros nos fundimos en silencio.
+
+---
+
+El mail de Ríos llegó esa tarde, a las seis:
+
+"Estimados proveedores:
+
+Por motivos de fuerza mayor, nos vemos obligados a suspender indefinidamente el contrato con todos nuestros proveedores de menor escala. Esta medida, dolorosa pero necesaria, forma parte de un plan de reestructuración que busca garantizar la continuidad de nuestra empresa en un contexto económico adverso.
+
+Agradecemos su comprensión y esperamos poder retomar la relación comercial cuando las circunstancias lo permitan.
+
+Atentamente,
+Dirección de Compras
+Industrias Ríos S.A."
+
+Mauro leyó el mail en voz alta, despacio, como si cada palabra le costara.
+
+—"Proveedores de menor escala" somos nosotros —dijo, amargo—. Pobrecitos nosotros.
+
+Se quedó mirando la pantalla un rato largo. Después, cerró la computadora, apagó las luces, y se sentó en la oscuridad del taller.
+
+Estanislao no se fue. Se quedó ahí, en silencio, acompañándolo.
+
+—¿Sabés qué es lo peor? —dijo Mauro, finalmente—. Que van a conseguir lo que quieren. Nos van a cerrar, nos van a fundir, y después van a decir que fue porque el mercado es así. Que los chicos no pueden competir. Que la única opción es trabajar para los grandes o morir. Y la gente se lo va a creer, porque es más fácil creer eso que pelear.
+
+Estanislao pensó en el loop del pobrecito: creer que no podés, dejar de intentar, confirmar que no podés.
+
+Ríos estaba usando la misma lógica, pero al revés: se hacía el pobrecito para que el Estado lo protegiera, para que le dieran subsidios, para que cerraran la competencia. Era la teoría del pobrecito aplicada a los poderosos.
+
+—Los pobrecitos con poder son los más peligrosos —murmuró.
+
+Mauro lo miró.
+
+—¿Qué dijiste?
+
+—Nada. Pensaba en voz alta.
+
+---
+
+Esa noche, en el cuaderno:
+
+"Hoy aprendí que el estado mental del pobrecito no es solo de los pobres.
+Los ricos también lo usan.
+Las empresas también lo usan.
+Los políticos también lo usan.
+
+'Pobrecitos nosotros, el mercado nos castiga.'
+'Pobrecitos nosotros, la competencia es desleal.'
+'Pobrecitos nosotros, necesitamos que el Estado nos proteja.'
+
+Es la misma lógica:
+no quiero competir, no quiero mejorar, no quiero arriesgar.
+Quiero que alguien me cuide.
+Quiero quedarme como estoy.
+Quiero que el mundo se adapte a mí, no yo al mundo.
+
+La diferencia es que cuando un pobre dice 'pobrecito yo', se queda quieto.
+Cuando un rico dice 'pobrecito yo', mueve al Estado para que lo proteja.
+El resultado es el mismo: nadie crece, nadie mejora, todos dependen.
+
+Ríos es un pobrecito con traje y abogados.
+Y nosotros somos los que pagamos el precio de su fragilidad."
 
 ---
 
 # Capítulo 12 – Pobrecitos con Corbata
 
-La charla en la universidad era sobre "movilidad social".
+La invitación llegó por mail, reenviada por Julián:
 
-Una socióloga famosa hablaba:
+"CONFERENCIA ABIERTA
+'MOVILIDAD SOCIAL EN ARGENTINA: MITOS Y REALIDADES'
+Universidad Nacional de San Aurelio
+Auditorio Central – Viernes 18hs
+Entrada libre y gratuita"
 
-—Tenemos que evitar culpabilizar al individuo. Hay estructuras que limitan las posibilidades. No podemos exigirle a todos lo mismo. Pobrecitos los que nacen con tantas carencias.
+—Quiero que vayan —dijo Julián en La Escalera, esa noche—. No para que aprendan algo, sino para que vean cómo hablan los que supuestamente saben. Y después me cuenten qué les pareció.
 
-Un empresario joven tomó el micrófono:
+Estanislao no tenía muchas ganas. Estaba cansado, preocupado por el taller, con la cabeza en otro lado. Pero Daniela insistió:
 
-—Yo siempre digo que tuve suerte. Nací en una familia con recursos. Sería injusto decir que "solo fue mérito". Por eso, en mi compañía promovemos un ambiente donde nadie destaque demasiado.
+—Dale, vamos. Nunca fui a la universidad. Quiero ver cómo es.
 
-La activista cerró:
+Así que el viernes a las seis estaban los dos en la puerta del auditorio, sintiéndose fuera de lugar entre estudiantes con mochilas de marca y profesores con anteojos de diseño.
 
-—Tenemos que dejar de romantizar la cultura del esfuerzo. Es violento decirle a alguien que si no progresa es porque no se esforzó. A veces, lo más revolucionario es decirle a alguien: "no pasa nada si no podés, pobrecito".
+---
 
-Estanislao miró alrededor. Había gente con todos los recursos del mundo que se hablaba a sí misma como pobrecita.
+El auditorio era enorme. Filas de butacas rojas, un escenario con luces, una pantalla gigante con el logo de la universidad. Olía a aire acondicionado y a café de máquina.
 
-Julián, al lado, murmuró:
+En el escenario había una mesa larga con tres sillas. Sentados, esperando que empezara el evento:
 
-—Nuevo modelo de pobrecito: *"pobrecito yo, tengo título y este país no me sabe apreciar"*. Otra versión del "el mundo me debe".
+- **Mariana Sotelo**, socióloga famosa, autora de libros sobre desigualdad.
+- **Tomás Alborada**, el empresario que Estanislao ya había visto en la charla del Grupo Alborada.
+- **Laura Vidal**, activista social, conocida por sus campañas en redes.
+
+La moderadora, una periodista de un canal grande, presentó el tema:
+
+—Hoy vamos a hablar de movilidad social. ¿Se puede progresar en Argentina? ¿Qué rol juega el esfuerzo individual? ¿Qué rol juegan las estructuras sociales? Empecemos con Mariana.
+
+Mariana Sotelo se acomodó el micrófono y habló con voz pausada, como quien explica algo obvio a niños:
+
+—Tenemos que evitar culpabilizar al individuo. Hay estructuras que limitan las posibilidades de las personas. No todos nacemos con las mismas oportunidades. No podemos exigirle a todos lo mismo. Decirle a alguien que "si no progresa es porque no se esforzó" es profundamente injusto. Pobrecitos los que nacen con tantas carencias.
+
+Estanislao sintió algo incómodo en el pecho. No era que la socióloga estuviera equivocada. Era cierto que no todos partían del mismo lugar. Era cierto que había estructuras injustas. Pero algo en la forma de decirlo le molestaba. Era como si estuviera hablando de animales en un zoológico, no de personas.
+
+Tomás Alborada tomó el micrófono:
+
+—Yo siempre digo que tuve suerte. Nací en una familia con recursos. Estudié en buenos colegios. Tuve oportunidades que otros no tuvieron. Sería injusto decir que "solo fue mérito". Por eso, en mi compañía promovemos un ambiente donde nadie destaque demasiado. Todos son valorados por igual, independientemente de sus resultados. El mérito individual es un mito que hay que desmantelar.
+
+Daniela le dio un codazo a Estanislao.
+
+—¿Escuchaste eso? "Nadie destaque demasiado". O sea, si sos bueno, te tienen que frenar para que los otros no se sientan mal.
+
+—Es más fácil bajar a los de arriba que subir a los de abajo —murmuró Estanislao.
+
+Laura Vidal cerró la ronda:
+
+—Tenemos que dejar de romantizar la cultura del esfuerzo. Es violento decirle a alguien que si no progresa es porque no se esforzó. A veces, lo más revolucionario es decirle a alguien: "no pasa nada si no podés, pobrecito. No es tu culpa. El sistema está en tu contra".
+
+Aplausos tibios en el auditorio.
+
+Estanislao miró alrededor. Había gente con notebooks de última generación, con zapatillas importadas, con ropa de marca. Gente que probablemente nunca había tenido que elegir entre comer o pagar la luz. Y esa gente se hablaba a sí misma como pobrecita.
+
+"Pobrecito yo, que tengo que soportar la presión de la universidad."
+"Pobrecito yo, que mi jefe no me valora."
+"Pobrecito yo, que este país no me da oportunidades."
+
+Era la teoría del pobrecito aplicada a gente que tenía todos los recursos del mundo.
+
+---
+
+Después de la charla, hubo un momento de preguntas. Estanislao levantó la mano sin pensar.
+
+La moderadora lo señaló.
+
+—Sí, el joven del fondo.
+
+Estanislao se puso de pie. Sintió las miradas de todos sobre él. La remera de fútbol trucha, las zapatillas gastadas, las manos con callos.
+
+—Quería hacer una pregunta —dijo, con voz que le temblaba un poco—. Ustedes hablan de que no hay que exigirle a la gente que se esfuerce. Que hay que decirle "no pasa nada si no podés". Pero yo vengo de un barrio donde todo el mundo dice eso. Todo el mundo dice "pobrecito, para qué vas a intentar, si siempre sale mal". Y ¿saben qué pasa? La gente se lo cree. Se queda quieta. Deja de intentar. Y después dice "ven, tenía razón, no se puede".
+
+Hizo una pausa. La sala estaba en silencio.
+
+—Yo trabajo en un taller. Gano poco. Me rompo el lomo. Y capaz me va mal. Pero prefiero eso a quedarme sentado esperando que alguien me rescate. Porque cuando te rescatan, no te están ayudando. Te están comprando. Te están diciendo "quedate quieto y yo te doy migajas". Y eso no es progreso. Eso es dependencia.
+
+La socióloga frunció el ceño.
+
+—Es una perspectiva interesante, pero simplifica mucho la realidad. No todos tienen las mismas posibilidades de...
+
+—No digo que todos tengan las mismas posibilidades —interrumpió Estanislao—. Digo que decirle a alguien "pobrecito, no podés" no lo ayuda. Lo hunde. Le roba las ganas de intentar. Y eso es peor que cualquier estructura injusta.
+
+Se sentó. Le temblaban las manos.
+
+Daniela le apretó el brazo.
+
+—Bien ahí —susurró.
+
+La moderadora pasó rápidamente a otra pregunta, como queriendo cambiar de tema.
+
+---
+
+A la salida, Julián los esperaba en la puerta.
+
+—Vi todo desde el fondo —dijo, sonriendo—. Bien hecho, Estani. Les dijiste lo que nadie se anima a decir.
+
+—No sé si sirvió de algo.
+
+—Sirvió para vos. Para confirmar lo que ya sabías. Y capaz sirvió para alguien más que estaba escuchando y pensaba lo mismo pero no se animaba a decirlo.
+
+Caminaron juntos hasta la parada del colectivo.
+
+—Nuevo modelo de pobrecito —dijo Julián, pensativo—: "pobrecito yo, tengo título y este país no me sabe apreciar". Es otra versión del "el mundo me debe". Otra forma de quedarse quieto esperando que alguien te reconozca, en vez de salir a buscar lo que querés.
+
+Estanislao asintió.
+
+—Es más fácil ser pobrecito que hacerse cargo.
+
+—Exacto. Por eso la teoría del pobrecito es tan popular. No solo entre los pobres. También entre los ricos, los profesionales, los que tienen todo. Todos quieren que alguien los cuide. Todos quieren que alguien les diga "no es tu culpa". Porque hacerse cargo duele. Y el pobrecito es un anestésico.
+
+---
+
+Esa noche, en el cuaderno:
+
+"Hoy vi pobrecitos con corbata.
+Gente con plata, con título, con todo.
+Y se hablaban a sí mismos como víctimas.
+'Pobrecito yo, el sistema no me deja brillar.'
+'Pobrecito yo, nadie reconoce mi talento.'
+'Pobrecito yo, merezco más de lo que tengo.'
+
+Es la misma trampa, solo que con otro envoltorio.
+El pobrecito pobre dice: 'no puedo, así que me quedo quieto'.
+El pobrecito rico dice: 'merezco más, así que el mundo me debe'.
+Los dos esperan que alguien les resuelva la vida.
+Los dos evitan hacerse cargo.
+
+La diferencia es que el pobrecito pobre se hunde solo.
+El pobrecito rico hunde a otros mientras se queja.
+
+La teoría del pobrecito no es de clase.
+Es de mentalidad.
+Y la mentalidad se puede cambiar.
+Pero primero hay que verla.
+Y hoy, por primera vez, la vi con corbata."
 
 ---
 
 # Capítulo 13 – El Precio de No Competir
 
-El pizarrón de La Escalera estaba lleno:
+El pizarrón de La Escalera estaba lleno de frases escritas con distintos colores:
 
 "NO QUIERO PERDER."
 "NO QUIERO ESFORZARME."
 "NO QUIERO CAMBIAR."
+"NO QUIERO ARRIESGAR."
+"NO QUIERO QUE OTROS ME SUPEREN."
 
-Y a la derecha, con flecha:
+Y a la derecha, con flecha roja:
 
 "ENTONCES LE PIDO AL ESTADO QUE ME PROTEJA."
 
-Julián se puso de pie.
+Julián caminaba de un lado a otro del aula, con el marcador en la mano, como un director de orquesta a punto de comenzar la función.
 
-—Vamos a ordenar lo que venimos viendo. Lo de Ríos, lo que viste en la universidad, lo que pasa con Mauro.
+—Hoy vamos a conectar los puntos —dijo—. Lo de Ríos, lo que vieron en la universidad, lo que está pasando con Mauro. Todo es parte del mismo sistema.
 
-Escribió:
+Se detuvo frente al pizarrón.
 
-"NO A LOS TALLERES TRUCHOS" = No a que entren nuevos a competir.
-"NO A LA APERTURA DE IMPORTACIONES" = No a que nadie nos obligue a mejorar.
+—¿Qué tienen en común un empresario grande que pide subsidios, un trabajador que pide que le suban el plan, un profesional que pide que le den un puesto, y un político que pide que le renueven el cargo?
 
-—La Teoría del Pobrecito, aplicada así, hace que **todos** le sacan algo a **alguien más competitivo** usando al Estado como intermediario.
+Silencio.
+
+—Todos piden que alguien les resuelva el problema sin tener que competir. Todos quieren la recompensa sin el riesgo. Todos quieren el premio sin la carrera.
+
+Escribió en el pizarrón:
+
+**"LA TEORÍA DEL POBRECITO ES UNA TEORÍA ANTI-COMPETENCIA"**
+
+—¿Qué quiero decir con esto? Que el pobrecito —ya sea pobre o rico— no quiere competir. No quiere medirse con otros. No quiere arriesgar. Prefiere que el Estado, o el jefe, o el sindicato, o quien sea, le garantice un lugar sin tener que ganárselo.
+
+Daniela levantó la mano.
+
+—Pero a veces la competencia es injusta. Si yo compito contra alguien que tiene más recursos, siempre voy a perder.
+
+—Buena pregunta —dijo Julián—. Y tenés razón: la competencia pura, sin reglas, es injusta. Por eso existen las reglas. Pero acá está el truco: los que piden "protección" casi nunca piden reglas justas para todos. Piden privilegios para ellos.
+
+Escribió dos columnas:
+
+**REGLAS JUSTAS:**
+- Todos pagan los mismos impuestos.
+- Todos cumplen las mismas normas.
+- Todos tienen acceso a la misma información.
+- El que hace mejor las cosas, gana.
+
+**PRIVILEGIOS DISFRAZADOS DE PROTECCIÓN:**
+- "No a los talleres truchos" = No a que entren nuevos a competir.
+- "No a la apertura de importaciones" = No a que nadie nos obligue a mejorar.
+- "Cupos obligatorios" = No a que el mérito decida.
+- "Subsidios a empresas grandes" = No a que compitan con las chicas.
+
+—¿Ven la diferencia? —preguntó—. Las reglas justas nivelan la cancha. Los privilegios la inclinan a favor de algunos. Y casi siempre, los que piden "protección" quieren privilegios, no reglas.
+
+Estanislao pensó en Ríos. El empresario que lloraba por televisión diciendo que la competencia lo destruía. Pero Ríos no pedía reglas justas. Pedía que cerraran las importaciones. Que le dieran subsidios. Que castigaran a los "talleres truchos". Pedía que lo protegieran de tener que competir.
+
+—Vamos a ordenar lo que venimos viendo —continuó Julián—. Lo de Ríos, lo que viste en la universidad, lo que pasa con Mauro.
+
+Escribió en el pizarrón:
+
+**RÍOS (empresa grande):**
+- Pide protección contra importaciones.
+- Corta contratos con proveedores chicos.
+- Llora por TV diciendo "pobrecitos nosotros".
+- Resultado: sobrevive él, mueren los demás.
+
+**UNIVERSIDAD (intelectuales):**
+- Dicen que el mérito es un mito.
+- Dicen que exigir es violento.
+- Dicen "pobrecito el que no puede".
+- Resultado: nadie intenta, nadie crece.
+
+**MAURO (taller chico):**
+- Quiere competir en igualdad.
+- Pide reglas claras, no privilegios.
+- No llora, trabaja.
+- Resultado: el sistema lo ahoga.
+
+—¿Ven el patrón? —preguntó Julián—. Los que piden protección, ganan. Los que quieren competir, pierden. Y todos usan la palabra "pobrecito" para justificarlo.
+
+Se sentó en el borde del escritorio, mirando a los alumnos.
+
+—La Teoría del Pobrecito, aplicada así, hace que **todos** le saquen algo a **alguien más competitivo** usando al Estado como intermediario. El empresario grande le saca mercado al chico. El trabajador improductivo le saca el puesto al productivo. El político corrupto le saca votos al honesto. Todos usando la misma excusa: "pobrecito yo, protegeme".
+
+Hizo una pausa.
+
+—¿Y quién paga el precio? Los que quieren competir. Los que quieren mejorar. Los que no piden protección porque creen que pueden hacerlo solos. Esos son los que terminan aplastados. Porque el sistema no premia al que intenta. Premia al que llora mejor.
+
+---
+
+Estanislao se quedó después de la clase, ayudando a Julián a ordenar las sillas.
+
+—¿Entonces no hay salida? —preguntó—. ¿Siempre ganan los que piden protección?
+
+Julián lo miró.
+
+—No siempre. A veces hay grietas. A veces hay gente que se cuela por las rendijas del sistema. Pero es difícil. Y peligroso. Porque el sistema no tolera a los que demuestran que se puede otra cosa.
+
+—Como Mauro.
+
+—Como Mauro. Él demostró que un taller chico puede hacer cosas bien. Que no necesita subsidios ni protección. Que puede competir. Y eso es intolerable. Porque si Mauro puede, entonces la excusa de "pobrecito yo" ya no sirve. Y si la excusa no sirve, el sistema se cae.
+
+—Por eso lo quieren cerrar.
+
+—Por eso lo quieren cerrar. No porque sea malo. Porque es bueno. Y los buenos son peligrosos.
+
+---
+
+Esa noche, en el cuaderno:
+
+"Hoy entendí algo que no quería entender.
+El sistema no premia al que intenta.
+Premia al que llora mejor.
+
+El empresario grande llora 'pobrecito yo' y le dan subsidios.
+El trabajador vago llora 'pobrecito yo' y le dan planes.
+El político corrupto llora 'pobrecito yo' y le dan votos.
+Y el que trabaja, el que intenta, el que no pide nada...
+ese termina aplastado.
+
+La teoría del pobrecito no es solo un estado mental.
+Es un sistema.
+Una forma de organizar la sociedad.
+Una máquina de premiar la dependencia y castigar la independencia.
+
+Mauro es peligroso porque demuestra que se puede otra cosa.
+Por eso lo quieren destruir.
+No por malo.
+Por bueno.
+
+Y yo estoy en el medio.
+Aprendiendo de él.
+Convirtiéndome en otro mal ejemplo.
+
+¿Qué van a hacer conmigo cuando Mauro ya no esté?"
 
 ---
 
