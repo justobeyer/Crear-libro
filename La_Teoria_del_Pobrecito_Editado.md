@@ -3274,6 +3274,113 @@ Y alguien, en algún lugar de San Aurelio, había dejado de creer.
 
 ---
 
+# Apéndice – El Capítulo Censurado
+
+## Nota del Autor
+
+*Este capítulo fue retirado de las primeras ediciones por presión directa del Gobernador de la Provincia y funcionarios cercanos al Presidente. Alegaron que contenía "información difamatoria" y "afirmaciones sin fundamento" que podían "afectar la paz social".*
+
+*Los abogados de la editorial recibieron una carta firmada por el Ministerio del Interior sugiriendo que la publicación de este material podría "generar consecuencias legales y de otra índole".*
+
+*Hoy, a un año de aquellos hechos, decidí incluirlo como apéndice. Porque censurar la verdad no la hace desaparecer. Solo la vuelve más urgente.*
+
+*Lo que sigue es exactamente lo que no querían que leyeras.*
+
+---
+
+## El Capítulo Censurado – Los Nombres del Monstruo
+
+Lo que nadie te cuenta es que el monstruo tiene nombres.
+
+No hablo de metáforas. Hablo de firmas en documentos, de transferencias bancarias, de contratos con números y fechas. Hablo de reuniones que ocurrieron en despachos oficiales, con café servido en tazas de porcelana y corbatas de seda.
+
+El Gobernador se llama [CENSURADO POR ORDEN JUDICIAL].
+
+Lo conocí una vez. Fue en un acto de "inauguración" de un centro comunitario que llevaba tres años abandonado. Lo vi sonreír para las cámaras, estrechar manos, besar a bebés que no conocía. Lo vi prometer "un futuro digno para los pobrecitos de nuestra provincia".
+
+Lo que no mostró la tele fue lo que pasó después.
+
+Cuando las cámaras se apagaron, el Gobernador se subió a una camioneta blindada. Lo vi desde la esquina, mientras fingía esperar el colectivo. La camioneta se detuvo frente a un edificio privado, de esos con portero eléctrico y cámaras en cada esquina.
+
+Un hombre lo esperaba en la puerta. Lo reconocí: era [CENSURADO POR ORDEN JUDICIAL], el empresario dueño del Grupo Alborada, el mismo que financiaba las campañas políticas del partido oficial.
+
+Se abrazaron como viejos amigos. Entraron juntos.
+
+Dos horas después, salieron. El empresario le dio un sobre. El Gobernador se lo guardó en el bolsillo interior del saco.
+
+No era la primera vez que algo así pasaba. Pero era la primera vez que yo lo veía con mis propios ojos.
+
+---
+
+El Presidente, por su parte, sabe perfectamente cómo funciona el sistema que él mismo administra.
+
+Lo sé porque Julián me mostró documentos.
+
+Julián, antes de morir, había juntado años de evidencia: correos electrónicos, actas de reuniones privadas, testimonios grabados. Todo organizado en carpetas, con fechas y nombres.
+
+Una de esas carpetas se titulaba: **"Proyecto Pobrecito"**.
+
+Adentro había un memorándum interno, fechado tres años antes de las últimas elecciones. Decía, entre otras cosas:
+
+*"La estrategia de comunicación debe reforzar la imagen del votante como víctima del sistema anterior. Es fundamental que la población objetivo sienta que solo el partido oficial puede protegerla. Para eso, se recomienda:*
+
+*1. Aumentar la dependencia de programas sociales con tarjetas nominales (control del voto).*
+*2. Desalentar iniciativas productivas independientes que puedan generar comparación negativa.*
+*3. Mantener un relato constante de 'crisis externa' para justificar la continuidad del modelo.*
+*4. Celebrar la 'cultura del pobrecito' como identidad nacional positiva."*
+
+El documento tenía el logo del partido oficial. Y una firma al pie: la del actual Presidente.
+
+---
+
+No estoy inventando nada. Todo lo que escribo acá estaba en las carpetas de Julián.
+
+Carpetas que, curiosamente, desaparecieron la noche que lo mataron.
+
+La policía dijo que "no encontraron material relevante" en su departamento. Pero Lucas y yo habíamos visto esas carpetas. Julián nos las había mostrado.
+
+Alguien las sacó antes de que llegaran los peritos. Alguien que tenía acceso al departamento, que sabía dónde buscar, que entendía qué era lo peligroso.
+
+Ese alguien no era un ladrón común. Era parte del sistema.
+
+---
+
+¿Por qué cuento esto ahora?
+
+Porque el silencio es complicidad. Y yo ya pagué el precio de hablar con una bala en el costado.
+
+Si me matan por publicar este capítulo, al menos quedará escrito. Al menos alguien lo leerá. Al menos la verdad tendrá una oportunidad de circular.
+
+Y si no me matan —si deciden que ya no valgo el riesgo, que soy solo un pibe de barrio que nadie va a escuchar—, entonces habrá ganado algo peor que mi muerte: el desprecio del poderoso hacia el que habla desde abajo.
+
+Pero eso también es información. Eso también es aprendizaje.
+
+El monstruo no solo mata. A veces ignora. A veces espera. A veces te deja hablar porque sabe que pocos escuchan.
+
+Mi trabajo es hacer que escuchen más.
+
+---
+
+**Nota final del autor:**
+
+*Este capítulo fue escrito originalmente como parte del cuerpo central de la novela. Fue retirado bajo presión. Hoy lo devuelvo a su lugar.*
+
+*No tengo pruebas físicas de todo lo que afirmo —esas pruebas fueron destruidas o robadas. Solo tengo mi palabra, mi memoria, y el testimonio de quienes ya no pueden hablar.*
+
+*Julián murió por decir estas cosas desde un lugar de privilegio.*
+*Mauro murió por demostrarlo desde un taller de barrio.*
+*Yo sobreviví para contarlo.*
+
+*Si esto te llega, no lo dejes morir.*
+*Pasalo. Copialo. Hablalo.*
+
+*La censura funciona cuando la gente obedece.*
+*Y yo decidí desobedecer.*
+
+*— E.*
+
+---
+
 ## Notas Editoriales Generales
 
 ### Cambios aplicados a lo largo de la novela (25 capítulos):
