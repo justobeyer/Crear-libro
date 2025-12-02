@@ -2750,136 +2750,499 @@ Adentro, en una cama de hospital público, un pibe de diecinueve años decidía 
 
 # Capítulo 22 – El Otro Traidor de Clase
 
-Un día, en La Escalera, Julián llegó distinto.
+La tarde estaba fría cuando Julián entró a La Escalera con un paquete bajo el brazo. Tenía ojeras profundas, la barba de varios días, y una energía distinta. Como si algo se hubiera resuelto adentro de él.
 
-—Muchos creen que yo soy uno más del barrio. No nací acá. Nací en otra clase social.
+Estanislao lo notó de inmediato.
 
-Dibujó tres círculos: BAJA – MEDIA – ALTA
+—¿Qué pasó? Tenés cara de que te sacaste un peso de encima.
 
-Se señaló a sí mismo, arriba de ALTA.
+Julián sonrió, pero no era una sonrisa alegre. Era la sonrisa de alguien que sabe que acaba de hacer algo irreversible.
 
-—Mi familia es de plata. Mucha. Estancias, empresas, apellidos importantes. Yo me eduqué en colegios caros. Todo lo que acá suena a lujo para algunos, para mí era normal.
+—Siéntense —dijo, mirando a los siete pibes que habían llegado ese día—. Hoy voy a contarles algo que nunca les conté.
 
-—¿Y qué hacés acá, entonces?
+El silencio se espesó. El viento golpeaba la chapa del techo del salón, y afuera se escuchaba el ladrido lejano de un perro.
 
-—Me cansé del cuento del pobrecito versión de clase alta.
+Julián se paró frente al pizarrón y dibujó tres círculos grandes:
 
-Sacó un manojo de hojas impresas:
+**CLASE BAJA – CLASE MEDIA – CLASE ALTA**
 
-"La Teoría del Pobrecito como Mecanismo de Estabilidad:
-Cómo Estado, Empresas, Sindicatos y Delito Organizado Mantienen Inalterable el Orden Social en San Aurelio."
+Se señaló a sí mismo y dibujó un punto encima del círculo de "ALTA".
 
-—Lo publiqué con nombre y apellido. Firmado.
+—Muchos de ustedes creen que yo soy uno más del barrio. Un tipo que estudió, leyó libros, y decidió venir a ayudar. Pero eso es solo la mitad de la historia.
 
-Semanas después, encontraron a Julián muerto en una ruta secundaria.
+Hizo una pausa. Afuera, un auto pasó lento por la calle de tierra, con música fuerte.
 
-Manos marcadas, signos de tortura, un tiro final en la cabeza.
+—Yo no nací acá. Nací en **otra clase social**. En el otro extremo del mapa.
 
-La policía hablaba de "investigar todas las hipótesis".
+Estanislao frunció el ceño.
 
-El portal, más directo, sugería: "Fuentes extraoficiales vinculan el hecho con su reciente trabajo."
+—¿Cómo que en otra clase?
+
+—Mi familia es de plata. Mucha plata. Estancias en el campo, empresas en la ciudad, apellidos que aparecen en las páginas de sociales. Yo me eduqué en colegios privados con piletas olímpicas. Cuando tenía doce años, mis viejos me mandaron a terminar la secundaria a un internado en Europa. Todo lo que acá suena a lujo —vacaciones afuera, tarjetas sin límite, casas con jardín— para mí era lo normal. Lo cotidiano.
+
+Hubo un silencio tenso. Lucas, que estaba sentado en el fondo, se cruzó de brazos.
+
+—¿Y qué hacés acá, entonces? ¿Viniste a ver cómo viven los negros?
+
+Julián no se ofendió.
+
+—Vine porque **me cansé del cuento del pobrecito versión de clase alta**.
+
+—¿Cómo sería eso?
+
+Julián se sentó en el borde de la mesa.
+
+—En mi mundo, nadie habla de "pobrecitos" con ese nombre. Pero el mecanismo es el mismo. Los ricos también tienen su teoría del pobrecito, solo que le dicen de otra forma. Dicen "la responsabilidad social empresaria", dicen "hay que cuidar al sector productivo", dicen "sin nosotros este país se cae a pedazos". El pobrecito de arriba se presenta como **víctima del Estado**, como **salvador incomprendido**, como el que "da trabajo" y por eso merece protección especial.
+
+Daniela, que tomaba apuntes, levantó la vista.
+
+—¿Y usted de qué se cansó?
+
+—De ver la hipocresía. De escuchar en la mesa de mi familia que había que "ayudar a los pobres" mientras negociaban con el intendente para que les bajaran los impuestos. De ver cómo usaban las mismas fundaciones benéficas para lavar imagen y evadir fiscalmente al mismo tiempo. De entender que todo el sistema de "ayuda" que ellos financiaban estaba diseñado para que nada cambie. Para que los pobres sigan siendo pobres útiles, y los ricos sigan siendo ricos intocables.
+
+Estanislao pensó en Ríos. En la conferencia de prensa llorando. En los empresarios con corbata que también lloraban "pobrecitos nosotros".
+
+—Entonces usted es un traidor de clase —dijo, sin acusación. Como constatando un hecho.
+
+Julián asintió.
+
+—Soy el **otro traidor de clase**. Mauro era el traidor de la clase baja: el pobre que no quería ser pobrecito. Y yo soy el traidor de la clase alta: el rico que no quiere seguir el libreto de rico protegido.
+
+—¿Y qué pasa con los traidores? —preguntó Lucas.
+
+—Los matan. A veces literalmente. A veces simbólicamente. A Mauro lo mataron con un tiro. A mí me van a matar con el desprecio de mi familia, con el silencio de mis ex amigos, con la exclusión de todos los círculos que alguna vez me abrieron las puertas.
+
+Abrió el paquete que traía.
+
+Adentro había un manojo de hojas encuadernadas. La portada decía:
+
+**"La Teoría del Pobrecito como Mecanismo de Estabilidad:**
+**Cómo Estado, Empresas, Sindicatos y Delito Organizado Mantienen Inalterable el Orden Social en San Aurelio."**
+
+**Por: Julián Echegaray Anchorena**
+
+—Lo publiqué ayer —dijo—. Con nombre y apellido. Firmado.
+
+Estanislao tomó una copia. El papel olía a tinta fresca.
+
+—¿Por qué?
+
+—Porque si no lo firmaba, iba a ser solo otro paper académico que nadie lee. Para que tenga peso, para que incomode, tiene que tener un apellido atrás. Y no cualquier apellido: un apellido que muestre que alguien de **adentro del sistema** está diciendo lo que dice. Un traidor con credenciales.
+
+Estanislao hojeó las páginas. Había gráficos, nombres, conexiones. El mapa del monstruo, pero expandido. Con fechas, transacciones, testimonios.
+
+—Esto es una bomba —murmuró.
+
+—Sí —dijo Julián—. Y las bombas explotan.
+
+---
+
+Tres semanas después, encontraron a Julián muerto en una ruta secundaria, a veinte kilómetros de San Aurelio.
+
+El cuerpo estaba tirado al costado del camino, entre yuyos altos y basura. Las manos marcadas con ligaduras, signos de tortura en el torso, un tiro final en la cabeza. Un mensaje prolijo, profesional.
+
+La policía habló de "investigar todas las hipótesis". Mencionaron un posible robo, un ajuste de cuentas, un crimen pasional. Cualquier cosa menos lo obvio.
+
+Los portales de noticias fueron más directos:
+
+*"Fuentes extraoficiales vinculan el hecho con su reciente trabajo académico sobre corrupción estructural."*
+
+En el barrio, la noticia llegó rápido. Lucas se lo contó a Estanislao en el kiosco de Don Hugo, con la voz quebrada.
+
+—Lo mataron, hermano. Al profe lo mataron.
+
+Estanislao sintió que el piso se hundía. Primero Mauro. Ahora Julián. Los dos traidores. Los dos que habían elegido no seguir el libreto.
+
+—¿Y ahora qué? —preguntó Lucas.
+
+Estanislao miró las hojas del paper que todavía tenía en su mochila. Las había leído tres veces. Las había subrayado. Las había copiado en su cuaderno.
+
+—Ahora —dijo, con la voz más firme de lo que esperaba— nos toca a nosotros no dejar que esto muera.
+
+El mensaje de Julián era claro: había pagado el precio de hablar. Ahora quedaba ver si alguien más iba a seguir hablando, o si el silencio iba a ganar otra vez.
+
+Esa noche, Estanislao abrió su cuaderno y escribió:
+
+*"Julián era el traidor de clase que nunca debió existir. Un tipo de plata que eligió decir la verdad sobre cómo funciona todo.*
+
+*Lo mataron por lo mismo que mataron a Mauro: por demostrar que se puede pensar distinto.*
+
+*Ahora me pregunto: ¿cuántos traidores hacen falta para que el sistema empiece a temblar? ¿Uno por clase? ¿Diez? ¿Mil?*
+
+*No sé la respuesta. Pero sé que el que habla primero paga el precio más alto. Y que los que vienen después tienen la obligación de no callarse."*
 
 ---
 
 # Capítulo 23 – Leer, Imaginar, Comprender, Salir
 
-En el pizarrón de La Escalera, Estanislao escribió:
+Después de la muerte de Julián, La Escalera estuvo vacía durante dos semanas.
 
-LEER
-IMAGINAR
-COMPRENDER
-SALIR
+Los pibes no venían. Algunos por miedo. Otros porque sus familias les habían prohibido acercarse. La madre de Lucas le había dicho: "Si vas ahí, te reviento". Daniela contó que su viejo le había gritado que "ese lugar estaba maldito".
 
-—LEER: Abrir un libro, un texto, una voz que no elegiste vos. Meter en la cabeza algo que desacomoda.
+Estanislao iba igual. Se sentaba solo en el salón frío, con las sillas vacías y el pizarrón manchado de tiza vieja. Miraba la ventana rota, escuchaba el viento, y pensaba en Julián explicando cosas que nadie más les había explicado nunca.
 
-—IMAGINAR: Ver que tu vida, tu barrio, tu país podrían ser de otra manera.
+Una tarde, mientras limpiaba el polvo de los libros que Julián había dejado, escuchó pasos en la entrada.
 
-—COMPRENDER: Atar cabos entre lo que leés y lo que vivís. Entender quién gana con que te quedes quieto.
+Era Lucas. Venía con la capucha puesta y los ojos rojos.
 
-—SALIR: Hacer aunque sea un movimiento mínimo distinto. Aunque nadie aplauda. Aunque duela.
+—Me escapé —dijo—. Mi vieja me va a matar. Pero no podía quedarme en casa sin hacer nada.
+
+Estanislao asintió.
+
+—Sentate.
+
+Lucas se sentó en la primera fila.
+
+—¿Y ahora qué hacemos, Estani? Sin el profe, sin Mauro... ¿Qué queda?
+
+Estanislao se quedó mirando el pizarrón vacío. Había algo escrito en una esquina, con la letra de Julián:
+
+*"El que enseña algo verdadero sigue enseñando después de muerto."*
+
+Se levantó, tomó una tiza, y empezó a escribir.
+
+**LEER**
+**IMAGINAR**
+**COMPRENDER**
+**SALIR**
+
+Lucas lo miró sin entender.
+
+—¿Qué es eso?
+
+Estanislao terminó de escribir y se dio vuelta.
+
+—Es lo que aprendí de Julián. Y de Mauro. Y de los libros que me dieron. Es una secuencia. Un camino. Lo que queda cuando te matan a los maestros: la lección que dejaron.
+
+Señaló la primera palabra.
+
+—**LEER.** Pero no leer cualquier cosa. Leer algo que no elegiste vos. Algo que te desacomoda. Algo que te hace preguntas que no te habías hecho. Un libro que no te regaló el Estado ni te vendió la tele. Un libro que te exige pensar.
+
+—¿Y eso por qué importa?
+
+—Porque cuando leés algo distinto, se te abren puertas en la cabeza. Empezás a ver que hay otras formas de pensar. Que la forma en que te criaron no es la única. Que el cuento que te contaron tiene agujeros.
+
+Señaló la segunda palabra.
+
+—**IMAGINAR.** Una vez que leíste algo distinto, podés empezar a imaginar. Ver que tu vida, tu barrio, tu país podrían ser de otra manera. Que el "siempre fue así" es mentira. Que otros lugares, otras épocas, otras personas hicieron las cosas distinto.
+
+Lucas asintió lentamente.
+
+—Como cuando uno lee sobre otro país y dice "che, allá no funciona así".
+
+—Exacto. La imaginación es peligrosa para el sistema. Porque un tipo que imagina que puede vivir de otra forma es un tipo que empieza a moverse.
+
+Señaló la tercera palabra.
+
+—**COMPRENDER.** Atar cabos entre lo que leés y lo que vivís. Entender quién gana con que te quedes quieto. Ver el mapa del monstruo. Darte cuenta de que el kiosquero, el puntero, el empresario y el comisario están todos conectados. Y que vos estás en medio de esa red, como un peón en un tablero que diseñaron otros.
+
+—Y cuando entendés eso, ¿qué pasa?
+
+—Pasa que ya no podés volver atrás. Ya no podés hacerte el boludo. Ya sabés cómo funciona todo. Y eso te deja dos opciones: venderte al sistema sabiendo que te vendés, o tratar de hacer algo distinto.
+
+Señaló la última palabra.
+
+—**SALIR.** Hacer aunque sea un movimiento mínimo diferente. Aunque nadie aplauda. Aunque duela. Aunque te cueste. Un paso. Una decisión. Un "no" donde siempre dijiste "sí". Un "sí" donde siempre dijiste "no". Algo que rompa el patrón.
+
+Lucas se quedó mirando el pizarrón.
+
+—Eso es lo que hicieron Mauro y Julián, ¿no? Salir.
+
+—Sí. Y por eso los mataron. Porque **salir es peligroso**. No para vos, sino para el sistema. Un tipo que sale demuestra que se puede. Y eso es lo que más miedo les da.
+
+El silencio se extendió. Afuera, un perro ladraba. El sol de la tarde entraba por la ventana rota y dibujaba sombras en el piso de cemento.
+
+—¿Y nosotros qué hacemos? —preguntó Lucas—. Somos pibes de barrio. No tenemos plata, no tenemos contactos, no tenemos armas.
+
+Estanislao sonrió.
+
+—Tenemos esto —señaló los libros—. Y esto —señaló el pizarrón—. Y esto —se tocó la cabeza—. Y mientras tengamos eso, el sistema nunca va a ganar del todo.
+
+Esa noche, cuando Lucas se fue, Estanislao se quedó solo en La Escalera.
+
+Abrió el cuaderno y escribió:
+
+*"Julián me dejó cuatro palabras. Cuatro peldaños. Una escalera dentro de La Escalera.*
+
+*LEER: Meter en la cabeza algo que desacomoda.*
+*IMAGINAR: Ver que puede ser distinto.*
+*COMPRENDER: Entender quién gana con que no te muevas.*
+*SALIR: Hacer aunque sea un movimiento chico.*
+
+*No sé si esto alcanza para cambiar el país. Probablemente no.*
+
+*Pero sé que mientras haya pibes que lean, imaginen, comprendan y se animen a salir, el cuento del pobrecito va a tener grietas.*
+
+*Y por las grietas, a veces, entra la luz."*
 
 ---
 
 # Capítulo 24 – Después del Tiro
 
-Al principio fue solo eso: **después del tiro**.
+Los primeros días después del tiro fueron de hospital, tubos y monitores.
 
-Días de hospital, controles, la madre repitiendo "pobrecito mi nene".
+Estanislao despertaba y dormía sin saber qué hora era. Las luces de neón siempre encendidas, el olor a desinfectante, el pitido constante de las máquinas. A veces veía a la madre sentada en una silla de plástico, dormida con la cabeza apoyada en la pared. A veces a la abuela rezando en voz baja, moviendo los labios sin sonido.
 
-Los primeros meses fueron de sobrevivir.
+La bala le había entrado por el costado, rozando el pulmón. Los médicos dijeron que había tenido suerte. Otra vez esa palabra.
 
-Un día, mientras acomodaba sus cosas, Estanislao abrió el cajón donde guardaba el cuaderno. Había también una pila de libros que Julián le había dejado, algunos con su letra al margen.
+*Suerte.*
 
-Volvió a La Escalera.
+Los primeros días fueron de sobrevivir. De respirar. De tragar la comida blanda que le traían. De aguantar el dolor cuando las enfermeras le cambiaban las vendas.
 
-—No soy héroe. Soy un tipo al que le pegaron un tiro y que todavía debe el alquiler.
+Después vinieron las visitas.
 
-Un pibe nuevo le dijo:
+La madre entraba llorando, se sentaba al lado de la cama, le acariciaba la mano.
 
-—Profe, yo leí tu libro. Me re calenté con algunas cosas, pero también me di cuenta de que siempre me hablé como pobrecito.
+—Pobrecito mi nene. Pobrecito. Te dije que no te metieras. Te dije que te quedaras quieto.
 
-Le mostró un cuaderno. En la tapa decía:
+Estanislao no tenía fuerzas para contestar. Dejaba que las palabras le pasaran por encima como agua.
 
-"La Teoría del Plan – Borrador."
+Ramiro vino una vez, con cara de culpa.
 
-Ahí estaba, en carne viva, lo que había escrito en teoría: LEER → IMAGINAR → COMPRENDER → HACER ALGO.
+—Perdoname, hermano. Perdoname por todo lo que te dije alguna vez. No sabía...
+
+—No tenés que perdonarte nada —dijo Estanislao, con voz ronca—. Cada uno elige lo que puede elegir.
+
+Lucas vino varias veces, siempre nervioso, siempre mirando para todos lados.
+
+—Afuera se comenta todo, Estani. Dicen que te pegaron un tiro por hablar de más. Dicen que sos un boludo. Pero también dicen que tenés huevos. Y hay pibes que empezaron a leer tu libro en secreto.
+
+Eso le dio fuerzas.
+
+La abuela fue la que más lo sorprendió. Una tarde, cuando estaban solos, se acercó a la cama y le dijo:
+
+—Estani, yo sé que hiciste cosas que no me contaste. Sé que escribiste ese libro. Lo leí.
+
+Él la miró sin saber qué decir.
+
+—¿Y qué te pareció?
+
+La abuela hizo una pausa larga. Afuera, una ambulancia sonaba a lo lejos.
+
+—Me hizo acordar a tu abuelo. Él también tenía ideas raras. También quería cambiar cosas. Y también lo castigaron por eso.
+
+—¿A qué te referís?
+
+—A que tu abuelo no era borracho de nacimiento, Estani. Se volvió borracho después de que le sacaran el trabajo, la casa, los amigos. Le hicieron la vida imposible por organizarse con otros en la fábrica. Y cuando ya no pudo más, eligió la botella.
+
+Estanislao sintió un nudo en la garganta.
+
+—Nunca me contaste eso.
+
+—Porque duele. Porque da vergüenza. Y porque no quería que terminaras como él. Pero ahora veo que ya elegiste tu camino. Y aunque me da miedo, también me da un poco de orgullo.
+
+Le apretó la mano.
+
+—Curte, nene. Que todavía te quedan cosas por hacer.
+
+---
+
+Los primeros meses después de salir del hospital fueron de recuperación.
+
+Caminar despacio. Respirar sin dolor. Acostumbrarse a la cicatriz que le quedó en el costado como un mapa de lo que pasó.
+
+Un día, mientras acomodaba sus cosas en la pieza, Estanislao abrió el cajón donde guardaba el cuaderno. Había también una pila de libros que Julián le había dejado, algunos con su letra al margen.
+
+Se sentó en la cama y los hojeó uno por uno.
+
+En un libro sobre movimientos sociales, Julián había escrito: *"Esto aplica perfecto a San Aurelio. Fijate página 134."*
+
+En un libro de filosofía: *"Cuando leas esto, vas a entender por qué te digo que el mérito torcido es un invento."*
+
+En una novela sobre pobreza en otro país: *"Mirá cómo cuentan lo mismo que nosotros vivimos, pero desde otro lugar."*
+
+Estanislao sintió que Julián seguía enseñándole, aun muerto.
+
+---
+
+Volvió a La Escalera un mes después.
+
+El salón estaba más lleno de lo que esperaba. Había pibes nuevos, algunos que nunca había visto. Lucas estaba en la puerta, haciendo de anfitrión improvisado.
+
+—Vinieron por vos —le dijo—. Quieren conocer al tipo que le pegaron un tiro y no se calló.
+
+Estanislao entró. Todos lo miraban. Se sintió incómodo, expuesto.
+
+—No soy héroe —dijo, parándose frente al pizarrón—. Soy un tipo al que le pegaron un tiro y que todavía debe el alquiler.
+
+Algunos rieron.
+
+—¿Entonces por qué estás acá? —preguntó un pibe nuevo, con los brazos cruzados.
+
+—Porque si no estoy, ganan ellos. Y no quiero que ganen.
+
+Un silencio.
+
+—Profe —dijo otro pibe, uno que tenía pinta de no haber leído nunca un libro—, yo leí tu libro. Me re calenté con algunas cosas. No estuve de acuerdo con todo. Pero también me di cuenta de algo.
+
+—¿Qué?
+
+—Que toda mi vida me hablé como pobrecito. "No puedo porque soy del barrio." "No puedo porque mis viejos son ignorantes." "No puedo porque nací acá." Y tu libro me hizo pensar: ¿quién me metió esas ideas en la cabeza?
+
+Estanislao asintió.
+
+—Eso es lo que quería. No que estés de acuerdo conmigo. Que empieces a preguntarte cosas.
+
+El pibe le mostró un cuaderno. En la tapa, con letra desprolija, decía:
+
+**"La Teoría del Plan – Borrador."**
+
+—Empecé a escribir yo también —dijo—. A ver si me sale algo.
+
+Estanislao sintió que algo se movía adentro de él. No era alegría exactamente. Era algo más profundo. Era ver en carne viva lo que había escrito en teoría:
+
+**LEER → IMAGINAR → COMPRENDER → HACER ALGO.**
+
+El pibe nuevo había leído su libro. Había imaginado que él también podía escribir. Había comprendido algo. Y ahora estaba haciendo algo.
+
+—Seguí escribiendo —le dijo Estanislao—. Aunque te salga mal. Aunque nadie lo lea. Porque el acto de escribir ya te cambia.
+
+Esa noche, de vuelta en su pieza, escribió:
+
+*"Hoy vi algo que me hizo entender por qué valió la pena el tiro.*
+
+*Un pibe que no conozco empezó a escribir. Un pibe que hace un año probablemente ni leía.*
+
+*El sistema no me pudo callar del todo. Y ahora hay uno más hablando.*
+
+*Eso es todo lo que puedo pedir."*
 
 ---
 
 # Capítulo 25 – La Salida Chica
 
-Un año después del tiro, el barrio estaba igual y distinto.
+Un año después del tiro.
 
-Igual en lo que se veía: mismos baches, mismos colectivos llenos, mismas colas en el comedor.
+El barrio estaba igual y distinto.
 
-Distinto en detalles mínimos:
+Igual en lo que se veía desde afuera: mismos baches en las calles, mismos cables colgando como telarañas, mismos colectivos llenos de gente apretada, mismas colas en el comedor comunitario donde la madre seguía trabajando.
 
-- Dos pibes se habían anotado en una tecnicatura.
-- Una piba empezó a escribir letras de rap mezclando lo que pasaba en la esquina con frases de libros.
-- Una madre dejó de decirle "pobrecito" a su hijo cada vez que fallaba.
+La casa de Estanislao tenía la misma humedad, el mismo olor a kerosén, el mismo televisor chueco que seguía transmitiendo las mismas noticias sobre los mismos pobrecitos.
 
-No era una revolución. Era una filtración.
+Y sin embargo, algo había cambiado.
+
+Cambios chicos. Cambios invisibles para el que no sabía mirar.
+
+---
+
+**Dos pibes se habían anotado en una tecnicatura.**
+
+Ernesto, el hijo del verdulero, había empezado a estudiar electricidad. Decía que quería armar su propio taller, como Mauro.
+
+—No quiero depender de nadie —le dijo a Estanislao un día—. Ni del Estado, ni de los chorros, ni de los empresarios. Quiero hacer algo con las manos y que me paguen por eso.
+
+El otro era Tomás, un pibe que venía de una familia donde nadie había terminado el secundario. Estaba estudiando diseño gráfico. Había empezado a hacer carteles para los negocios del barrio, cobrando poco, pero cobrando.
+
+—Mi vieja me dice que soy un soñador —contó—. Pero yo le digo: soñar es gratis, ma. Dejar de intentar es lo que cuesta.
+
+---
+
+**Una piba empezó a escribir letras de rap.**
+
+Se llamaba Carla. Tenía diecisiete años y un cuaderno lleno de versos que mezclaban lo que pasaba en la esquina con frases de libros que había leído en La Escalera.
+
+Una de sus letras decía:
+
+*"Me dicen pobrecita, me quieren callada,*
+*pero yo leo libros y tengo la mirada*
+*puesta en un futuro que nadie me pintó,*
+*un mapa que yo misma con lápiz dibujó."*
+
+Había empezado a cantar en las juntadas del barrio. Algunos se reían. Otros la escuchaban con atención.
+
+—No me importa si no les gusta —decía—. Lo que importa es que estoy diciendo lo que pienso. Eso ya es un montón.
+
+---
+
+**Una madre dejó de decirle "pobrecito" a su hijo.**
+
+Era Marta, la vecina de tres casas más abajo. Tenía un hijo adolescente que siempre reprobaba en la escuela.
+
+Antes, cada vez que el pibe fallaba, ella decía: "Pobrecito, si con la escuela que tenemos, qué vas a aprender".
+
+Después de leer el libro de Estanislao —que le había prestado Lucas—, dejó de decir eso.
+
+—Ahora le digo: "¿Qué vas a hacer distinto la próxima vez?" —contó—. No lo trato como si fuera incapaz. Lo trato como si pudiera aprender.
+
+El pibe todavía reprobaba a veces. Pero algo había cambiado en su mirada. Ya no bajaba los ojos cuando le preguntaban qué quería ser de grande.
+
+---
+
+No era una revolución. Estanislao lo sabía.
+
+No había tumbado al gobierno, ni cerrado las empresas corruptas, ni desarmado la red del delito. El mapa del monstruo seguía intacto. Los cuatro círculos seguían entrelazados.
+
+Pero había algo distinto.
+
+**Era una filtración.**
+
+Como el agua que entra por una grieta en el techo: no derrumba la casa, pero va mojando las cosas de a poco. Va cambiando la temperatura. Va haciendo que te des cuenta de que hay un problema.
 
 ---
 
 Una tarde, Estanislao se sentó en la vereda del taller clausurado de Mauro.
 
+El cartel de intimación seguía pegado en la puerta, descolorido por el sol. Las herramientas habían sido vendidas para pagar deudas. La máquina de soldar, esa que Mauro tanto cuidaba, terminó en manos de un tipo que ni siquiera sabía usarla.
+
+Estanislao miró la puerta cerrada y sintió el peso de todo lo que no habían podido salvar.
+
 Abrió el cuaderno y escribió:
 
-"No pudimos salvar el taller.
-No pudimos salvar a Mauro.
-No pudimos salvar a Julián.
+*"No pudimos salvar el taller.*
+*No pudimos salvar a Mauro.*
+*No pudimos salvar a Julián.*
 
-Lo que sí pudimos fue no entregarles la cabeza del todo."
+*Lo que sí pudimos fue no entregarles la cabeza del todo.*
 
-"Aprendí estos años que salir no es irse del barrio,
-ni hacerse rico,
-ni ganar todas las batallas.
+*Lo que sí pudimos fue seguir leyendo cuando nos dijeron que leer era de inútiles.*
+*Lo que sí pudimos fue seguir pensando cuando nos dijeron que pensar era de traidores.*
+*Lo que sí pudimos fue seguir hablando cuando nos pegaron un tiro para callarnos."*
 
-Salir es esto:
-– dejar de hablarme como pobrecito,
-– dejar de esperar que alguien me adopte,
-– y usar lo que sé —aunque sea poco—
-para que otro vea un poco más claro."
+Hizo una pausa. El sol de la tarde caía sobre la calle de tierra, dorando las chapas de los techos. Un grupo de chicos jugaba a la pelota en la esquina, gritando.
+
+Siguió escribiendo:
+
+*"Aprendí estos años que salir no es irse del barrio,*
+*ni hacerse rico,*
+*ni ganar todas las batallas.*
+
+*Salir es esto:*
+*– dejar de hablarme como pobrecito,*
+*– dejar de esperar que alguien me adopte,*
+*– y usar lo que sé —aunque sea poco—*
+*para que otro vea un poco más claro.*
+
+*Salir es chico. Es mínimo. Es casi invisible.*
+
+*Pero es lo único que tengo."*
 
 ---
 
-Antes de apagar la luz, escribió la última línea:
+Esa noche, antes de apagar la luz, escribió la última página:
 
-"Si algún día alguien me pregunta cómo se sale del país del pobrecito,
-no le voy a hablar primero de partidos, ni de empresas, ni de héroes.
+*"Si algún día alguien me pregunta cómo se sale del país del pobrecito,*
+*no le voy a hablar primero de partidos, ni de empresas, ni de héroes.*
 
-Le voy a poner un libro en la mano,
-le voy a dar un cuaderno,
-y le voy a decir:
+*Le voy a poner un libro en la mano,*
+*le voy a dar un cuaderno,*
+*y le voy a decir:*
 
-'Leé algo que no te regalaron,
-imaginá que podés ser más que el personaje que te dieron,
-tratá de comprender quién gana con que no lo hagas,
-y después, aunque sea un poquito,
-salí de lugar.
+*'Leé algo que no te regalaron,*
+*imaginá que podés ser más que el personaje que te dieron,*
+*tratá de comprender quién gana con que no lo hagas,*
+*y después, aunque sea un poquito,*
+*salí de lugar.*
 
-Lo demás, si llega, viene después.'"
+*Lo demás, si llega, viene después.'*
+
+*No sé si esto es una teoría. No sé si es un método. No sé si funciona.*
+
+*Lo que sé es que a mí me sacó de un pozo.*
+*Y si me sacó a mí, puede sacar a otro.*
+
+*Y si saca a otro, puede sacar a otro más.*
+
+*Así, de a poco, uno por uno, hasta que el cuento del pobrecito tenga tantas grietas que ya no pueda sostenerse."*
 
 ---
 
@@ -2887,14 +3250,27 @@ El barrio seguía.
 La clase media seguía.
 La clase alta seguía.
 
-El pacto de los pobrecitos seguía también.
+El pacto de los pobrecitos seguía también: el Estado prometiendo cosas, las empresas llorando subsidios, los sindicatos negociando cuotas, el delito ofreciendo atajos.
 
-Pero ahora, en algún lugar de cada capa,
-había al menos una persona con un libro abierto y un cuaderno empezado,
-pensando cosas que no le habían escrito otros.
+Todo seguía funcionando como siempre había funcionado.
 
-Y mientras eso existiera, por más débil que fuera,
-la Teoría del Pobrecito nunca iba a estar del todo segura.
+Pero ahora, en algún lugar de cada capa, había al menos una persona con un libro abierto y un cuaderno empezado, pensando cosas que no le habían escrito otros.
+
+Una persona que había dejado de hablarse como pobrecita.
+
+Una persona que había empezado a imaginar algo distinto.
+
+Una persona que estaba haciendo, aunque sea, un movimiento chico.
+
+Y mientras eso existiera, por más débil que fuera, por más invisible que pareciera, la Teoría del Pobrecito nunca iba a estar del todo segura.
+
+Porque las teorías, por más poderosas que sean, se caen cuando la gente deja de creerlas.
+
+Y alguien, en algún lugar de San Aurelio, había dejado de creer.
+
+---
+
+**FIN**
 
 ---
 
@@ -2908,10 +3284,10 @@ la Teoría del Pobrecito nunca iba a estar del todo segura.
 
 3. **Ambivalencias morales reforzadas:**
    - **Estanislao:** Añadida envidia junto al desprecio hacia el Presidente; autoconciencia sobre comprar cigarrillos con dinero no declarado; duda al firmar el formulario; tensión entre los tres caminos
-   - **Abuela:** Breve backstory (marido borracho, inundaciones, hijo que nunca volvió); "No era pasiva; elegía sus batallas"
+   - **Abuela:** Breve backstory (marido borracho, inundaciones, hijo que nunca volvió); "No era pasiva; elegía sus batallas"; revelación sobre el abuelo en el hospital
    - **Ramiro:** "Algo amargo debajo" de su risa, "cansancio, no vagancia"
    - **Mauro:** Terquedad idealista que lo lleva a su destino trágico
-   - **Julián:** El "traidor de clase" que paga con su vida por decir la verdad desde arriba
+   - **Julián:** El "traidor de clase" que paga con su vida por decir la verdad desde arriba; revelación completa de su origen y motivación
 
 4. **Detalles sensoriales por escena:**
    - Casa: Olor a humedad y kerosén, piso frío, colchón hundido
@@ -2920,7 +3296,8 @@ la Teoría del Pobrecito nunca iba a estar del todo segura.
    - Acto político: Olor a choripán, humo de parrillas, polvo
    - Canchita: Pasto seco, cerveza tibia
    - Taller: Serrín, metal, café recalentado
-   - Hospital: Cables, máquinas, olor a desinfectante
+   - Hospital: Cables, máquinas, olor a desinfectante, luces de neón
+   - La Escalera vacía: Viento en la chapa, polvo, silencio
 
 5. **Estructura de los Tres Caminos desarrollada:**
    - Camino A: Pobrecito para siempre (dependencia estatal)
@@ -2929,7 +3306,14 @@ la Teoría del Pobrecito nunca iba a estar del todo segura.
 
 6. **El Mapa del Monstruo:** Se desarrolló la visión de cómo municipio, sindicatos, empresas grandes y delito organizado se necesitan mutuamente
 
-7. **Secuencia LEER-IMAGINAR-COMPRENDER-SALIR:** Insertada como filosofía central de La Escalera y legado de Julián
+7. **Secuencia LEER-IMAGINAR-COMPRENDER-SALIR:** Insertada como filosofía central de La Escalera y legado de Julián, desarrollada en clase completa
+
+### Capítulos 22-25 Expandidos:
+
+- **Capítulo 22 (El Otro Traidor de Clase):** Confesión completa de Julián sobre su origen de clase alta, explicación de la "teoría del pobrecito versión rica", publicación del paper con nombre y apellido, muerte de Julián con todos los detalles, reacción de Estanislao y decisión de continuar
+- **Capítulo 23 (Leer, Imaginar, Comprender, Salir):** La Escalera vacía después de la muerte de Julián, regreso de Lucas, clase completa de Estanislao explicando las cuatro palabras, reflexión sobre qué queda cuando matan a los maestros
+- **Capítulo 24 (Después del Tiro):** Escena completa del hospital con tubos y monitores, conversación con la madre (que lo llama "pobrecito"), revelación de la abuela sobre el abuelo, recuperación física, regreso a La Escalera, el pibe nuevo que muestra su cuaderno
+- **Capítulo 25 (La Salida Chica):** Cambios detallados en el barrio (Ernesto, Tomás, Carla, Marta), reflexión en el taller clausurado de Mauro, las últimas páginas del cuaderno, cierre con la teoría del pobrecito temblando
 
 ### Estructura narrativa preservada:
 - Punto de vista de Estanislao mantenido
@@ -2941,6 +3325,6 @@ la Teoría del Pobrecito nunca iba a estar del todo segura.
 
 ---
 
-**Archivo completo: La Teoría del Pobrecito - 25 capítulos editados**
+**Archivo completo: La Teoría del Pobrecito - 25 capítulos editados y expandidos**
 
 Ubicación del archivo: `La_Teoria_del_Pobrecito_Editado.md` en el repositorio
