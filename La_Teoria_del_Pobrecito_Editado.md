@@ -3,6 +3,76 @@
 
 ---
 
+# Prólogo — Carne Viva
+
+No voy a pedirte perdón por lo que vas a leer.
+
+No voy a suavizar las palabras ni ponerle un moño a la miseria. No voy a decirte que todo va a estar bien, ni que si esperás lo suficiente alguien te va a salvar. Nadie te va a salvar. Y si seguís esperando, te vas a morir esperando.
+
+Esto no es una historia de víctimas. Es una historia de cómplices.
+
+Porque eso es lo que somos cuando aceptamos el cuento del "pobrecito": cómplices de nuestra propia cárcel. Nos lo enseñaron desde chicos, en el almuerzo de la escuela, en la cola del plan, en el discurso del político que llora por nosotros mientras se llena los bolsillos. Nos lo repitieron tanto que terminamos creyéndolo: que la vida es así, que nacimos para esto, que otros van a decidir por nosotros porque nosotros no podemos.
+
+**Mentira.**
+
+La teoría del pobrecito no es una verdad. Es una trampa.
+
+Es un estado mental que te deja quieto. Que te convence de que no vas a poder, de que el esfuerzo no vale la pena, de que es mejor esperar la ayuda que salir a buscarla. Y mientras vos esperás, otros se quedan con todo: con tu tiempo, con tu trabajo, con tu dignidad, con tus hijos.
+
+Te quieren manso. Te quieren agradecido. Te quieren votando cada cuatro años con el estómago lleno de choripán y el alma vacía de futuro.
+
+Yo también fui uno de ellos. Crecí en el barrio, con el barro en las zapatillas y la palabra "pobrecito" pegada al apellido. Conocí los tres caminos: el que acepta la ayuda y se queda quieto, el que agarra el atajo oscuro, y el que decide construir algo propio aunque le cueste sangre.
+
+Elegí el tercero. Y me costó sangre.
+
+Me costó amigos muertos, maestros muertos, un tiro que casi me mata y una familia que todavía no entiende por qué no me quedé tranquilo como todos los demás.
+
+Pero estoy vivo. Y estoy afuera.
+
+No afuera del barrio —eso sería huir, y huir no cambia nada—. Estoy afuera de la trampa. Afuera del cuento. Afuera de la mentalidad que me decía que mi único destino era ser el pobrecito de alguien.
+
+**Y ahí está el secreto: HAY QUE SALIR.**
+
+No de la pobreza. Eso viene después, si viene. Hay que salir del estado mental. Hay que salir de la resignación. Hay que salir de la idea de que otros van a arreglarte la vida.
+
+El día que dejás de esperar que te salven, empezás a salvarte solo.
+
+El día que dejás de decir "soy un pobrecito", empezás a ser otra cosa.
+
+El día que entendés que el sistema te quiere quieto para que no molestes, empezás a molestar.
+
+Y molestar es peligroso. Esta historia lo demuestra. Mauro molestó, y lo mataron. Julián molestó, y lo mataron. A mí me metieron un tiro y no me morí de pura casualidad.
+
+Pero escuchame bien: prefiero un tiro en el pecho que una vida entera de rodillas.
+
+Prefiero morir intentando que vivir aceptando.
+
+Prefiero ser un mal ejemplo que un buen pobrecito.
+
+Si estás leyendo esto, es porque algo en vos ya sabe que el cuento es mentira. Algo en vos ya se cansó de esperar. Algo en vos ya quiere salir.
+
+Este libro no te va a dar las respuestas. No hay recetas. Lo que te voy a contar es una historia: la mía, la de mi barrio, la de un país entero que se acostumbró a arrodillarse.
+
+Y te voy a contar cómo algunos decidimos pararnos.
+
+No fue bonito. No fue fácil. No fue justo.
+
+Pero fue real.
+
+Y real es lo único que tenemos cuando todo lo demás es verso.
+
+Leé esto con los ojos abiertos. Leé esto con el estómago revuelto. Leé esto con rabia, con dolor, con lo que tengas adentro que todavía no se apagó.
+
+Y cuando termines, hacé algo. Lo que sea. Pero hacé algo.
+
+Porque si leés esto y no hacés nada, entonces ganaron ellos.
+
+Y yo no escribí este libro para que ganen ellos.
+
+*—Estanislao, antes del segundo tiro*
+
+---
+
 # Capítulo 1 – País para Pobrecitos
 
 San Aurelio amanecía con la misma frase de siempre.
