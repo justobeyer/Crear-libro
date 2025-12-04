@@ -771,20 +771,24 @@ San Aurelio, como él, estaba atrapado entre **ser pobrecito para siempre**, **h
 # **<a name="_toc215679761"></a>Capítulo 4 – \*\*\* Progreso Rápido \*\*\***
 La primera vez fue casi por vergüenza.
 
-—No tenés que hacer nada raro, boludo -le dijo Ramiro-. Solo llevás un paquete de un lado a otro. Como cuando llevás empanadas. Nadie te va a pedir título universitario para eso.
+Era una de esas noches húmedas de diciembre donde el aire pesaba como una manta mojada. El olor a basura sin recoger se mezclaba con el de asado lejano, alguna parrillita de barrio celebrando algo. Los mosquitos zumbaban alrededor de los faroles rotos, y en algún lugar un perro ladraba sin convicción, como cumpliendo un turno.
 
-Estaban en la esquina, de noche. El auto negro seguía allí, pero esta vez la puerta trasera estaba entreabierta. Una mano apoyada en el techo, un cigarrillo encendido, dos siluetas adentro.
+—No tenés que hacer nada raro, boludo —le dijo Ramiro, con las manos en los bolsillos del jogging—. Solo llevás un paquete de un lado a otro. Como cuando llevás empanadas. Nadie te va a pedir título universitario para eso.
 
-Estanislao apretó el casco contra el cuerpo.
+Estaban en la esquina de siempre, la de la panadería cerrada que nunca había abierto, la que tenía el cartel de "PRÓXIMAMENTE" desde que Estanislao tenía memoria. El auto negro seguía allí, pero esta vez la puerta trasera estaba entreabierta. Una mano apoyada en el techo, un cigarrillo encendido cuya brasa brillaba como un ojo rojo, dos siluetas adentro.
 
-—¿Y si me paran? —preguntó.
+Estanislao apretó el casco contra el cuerpo. El plástico abollado olía a sudor viejo y gasolina. Pensó en su abuela durmiendo, en su madre mirando la tele con los ojos vacíos, en la heladera casi vacía que hacía un ruido de motor enfermo.
 
-Ramiro sonrió con calma prestada.
+—¿Y si me paran? —preguntó. La voz le salió más aguda de lo que hubiera querido.
+
+Ramiro sonrió con calma prestada, esa calma que había aprendido de los tipos que subían y bajaban del auto negro.
 
 —No te van a parar. Y si te paran, decís que sos repartidor. Que hacés mandados.\
 ` `Que no sabés nada. Tenés cara de bueno, Estani, usala.
 
-La frase lo pinchó. Cara de bueno. Pobrecito incluso para el delito, pensó.
+La frase lo pinchó. **Cara de bueno.** Pobrecito incluso para el delito, pensó. Siempre había sido el "nene tranquilo" del barrio, el que no se metía en quilombos, el que ayudaba a las viejas a cruzar la calle. Y ahora eso servía para esto.
+
+—Pensalo así —agregó Ramiro, bajando la voz—: si tenés cara de bueno, sos invisible para la cana. Ellos buscan al tatuado, al rapado, al que tiene "pinta". Vos sos el pibe del delivery. Nadie sospecha de un pobrecito en moto.
 
 —Es solo una vez para probar —insistió Ramiro—. Nadie se hace rico laburando en negro para el Negro. Mirá a tu abuela, mirá a tu vieja. Toda la vida rompiéndose el lomo y siguen contando monedas. Un viajecito no te hace narco. Te hace **menos pobrecito**.
 
@@ -986,54 +990,62 @@ Esa pregunta, más que ninguna otra, fue la que le empujó el cuerpo hacia adent
 
 La puerta se cerró detrás de él, con un clic leve, pero distinto a todos los que había escuchado ese día.
 # **<a name="_toc215679762"></a>Capítulo 5 – \*\*\* La Escalera \*\*\***
-El centro cultural La Escalera estaba en un edificio flaco, de dos pisos, entre una ferretería húmeda y una panadería que olía siempre a algo quemado. Desde afuera no llamaba la atención: una puerta de chapa pintada a medias y un cartel de madera con el nombre descolorido.
+El centro cultural La Escalera estaba en un edificio flaco, de dos pisos, apretado entre una ferretería húmeda cuyas cortinas de metal siempre estaban a medio bajar, y una panadería que olía siempre a algo quemado. Desde afuera no llamaba la atención: una puerta de chapa pintada a medias, grafitis superpuestos que nadie se había molestado en limpiar, y un cartel de madera con el nombre descolorido por el sol y la lluvia.
+
+**"La Escalera - Centro Cultural del Barrio"**
+
+Había un afiche pegado en la puerta con cinta: "CHARLA GRATUITA: DEL BARRIO AL MUNDO. Hoy 20hs. Nadie te va a pedir nada."
+
+Estanislao llegó tarde. Había dudado en venir. Había caminado hasta la esquina, dado media vuelta, vuelto a caminar. El mensaje del auto negro seguía en el celular, sin responder. La moto del Negro estaba en el taller, así que había venido caminando, veinte cuadras que le dieron tiempo para pensar en todo lo que había pasado en las últimas semanas.
 
 Por dentro, otra historia.
 
-Apenas Estanislao entró, lo golpeó un olor a café viejo, libros y pintura fresca. Había afiches pegados en las paredes: talleres de teatro, de programación, de lectura, fotos de viajes, charlas con títulos raros.
+Apenas entró, lo golpeó un olor a café viejo, libros y pintura fresca. El piso era de mosaicos gastados, algunos rotos, tapados con alfombritas de diferentes colores. Las paredes estaban llenas de afiches pegados con cinta: talleres de teatro, de programación básica, de lectura, fotos de viajes, charlas con títulos raros.
 
-“Del barrio al mundo.”\
-“Cómo estudiar cuando en tu casa nadie estudió.”\
-“Historias de fracasos útiles.”
+"Del barrio al mundo."\
+"Cómo estudiar cuando en tu casa nadie estudió."\
+"Historias de fracasos útiles."\
+"El mérito no es una mala palabra."
 
-Al fondo, un grupo de pibes escuchaba a alguien que hablaba con un acento extraño, mezcla de campo y ciudad.
+Al fondo, un grupo de unos quince pibes escuchaba a alguien que hablaba con un acento extraño, mezcla de campo y ciudad. Había sillas plásticas de distintos colores, como robadas de diferentes patios, y una mesa con un termo, tazas desparejadas y galletitas surtidas de las baratas.
 
 —…el problema no es que el país sea pobre —decía la voz—. El problema es que está lleno de gente a la que convencieron de que **no puede dejar de ser pobre**, porque si deja de ser pobre, hay muchos que se quedan sin trabajo… empezando por algunos políticos.
 
-Risas tímidas. Algunas miradas incómodas.
+Risas tímidas. Algunas miradas incómodas. Un pibe con auriculares colgando del cuello miraba el celular. Una chica con el pelo teñido de azul tomaba notas en una libreta.
 
-Estanislao se asomó un poco más. El que hablaba estaba de espaldas a la puerta, dibujando algo en un pizarrón.
+Estanislao se asomó un poco más, tratando de no hacer ruido. El que hablaba estaba de espaldas a la puerta, dibujando algo en un pizarrón de esos blancos, de los que se borran con trapo.
 
-Era un hombre flaquito, de hombros caídos, camisa arrugada por dentro de un pantalón que había conocido mejores días, zapatos gastados. El pelo entrecano, desordenado, parecía discutir con la gravedad. La camisa tenía una mancha de café a la altura del bolsillo y un bolígrafo reventado colgando de allí.
+Era un hombre flaquito, de unos cuarenta y cinco años, hombros caídos, camisa arrugada por dentro de un pantalón que había conocido mejores días, zapatos gastados pero lustrados. El pelo entrecano, desordenado, parecía discutir con la gravedad. La camisa tenía una mancha de café a la altura del bolsillo y un bolígrafo reventado colgando de allí. Usaba anteojos de lectura que se subía y bajaba según lo que estuviera mirando.
 
-No daba “importante”.\
-Daba “despreocupado”.
+No daba "importante".\
+Daba "despreocupado".\
+Daba "ha visto cosas".
 
 Se dio vuelta para mirar al grupo y Estanislao lo vio bien.
 
-Los ojos eran otra cosa: claros, vivaces, como si siempre estuvieran dos o tres pensamientos más allá de lo que estaba diciendo. Había algo medio duro en la mirada, como de alguien que vio demasiado, pero la voz era suave.
+Los ojos eran otra cosa: claros, azul grisáceo, vivaces, como si siempre estuvieran dos o tres pensamientos más allá de lo que estaba diciendo. Había algo medio duro en la mirada, como de alguien que vio demasiado y aprendió a no sorprenderse, pero la voz era suave, casi cálida.
 
-—A ver —siguió el hombre—, ¿quién de ustedes escucha seguido la frase “y… es lo que hay”?
+—A ver —siguió el hombre—, ¿quién de ustedes escucha seguido la frase "y… es lo que hay"?
 
-Varias manos se levantaron, casi con resignación.
+Varias manos se levantaron, casi con resignación. Estanislao también, sin pensarlo.
 
-—Bien. Primera lección —dijo él, levantando un dedo manchado de tinta—: cada vez que alguien les diga “es lo que hay”, tradúzcanlo en su cabeza como “yo no tengo ganas de hacer nada mejor”. No es una descripción de la realidad, es una confesión de pereza.
+—Bien. Primera lección —dijo él, levantando un dedo manchado de tinta—: cada vez que alguien les diga "es lo que hay", tradúzcanlo en su cabeza como "yo no tengo ganas de hacer nada mejor". No es una descripción de la realidad, es una confesión de pereza. Una rendición disfrazada de sabiduría.
 
-Algunos rieron. Otros se incomodaron.
+Algunos rieron. Otros se incomodaron. El pibe del celular guardó el teléfono por primera vez.
 
-—Mi nombre es **Julián** —agregó—. Vengo del interior, de un pueblo donde “es lo que hay” era religión. Créanme: si se lo creen, se termina el juego.
+—Mi nombre es **Julián** —agregó, escribiéndolo en el pizarrón con letra desprolija—. Julián Menéndez. Vengo del interior, de un pueblo donde "es lo que hay" era religión. Créanme: si se lo creen, se termina el juego.
 
-Se detuvo, como si recién entonces notara a Estanislao parado junto a la puerta.
+Se detuvo, como si recién entonces notara a Estanislao parado junto a la puerta, con el casco de moto en la mano y la remera del club trucho que le quedaba grande.
 
 —Vos, el de la remera del club trucho —dijo, señalándolo con el marcador—. ¿Es lo que hay también ahí afuera, o viniste a buscar otra cosa?
 
-A Estanislao se le secó la boca.
+A Estanislao se le secó la boca. Sintió las miradas de los otros pibes.
 
-—No sé —dijo—. Capaz vine a ver si hay otra cosa.
+—No sé —dijo, con la voz más firme de lo que esperaba—. Capaz vine a ver si hay otra cosa. Capaz vine porque estoy cansado de que me digan qué es lo que hay.
 
-Julián lo sostuvo la mirada un segundo de más. No fue una mirada dulce, pero tampoco hostil. Era como si lo pesara.
+Julián lo sostuvo la mirada un segundo de más. No fue una mirada dulce, pero tampoco hostil. Era como si lo pesara en una balanza invisible, calculando qué traía adentro.
 
-—Mala noticia —respondió—: si no la hay, la vas a tener que inventar. Sentate.
+—Mala noticia —respondió—: si no la hay, la vas a tener que inventar. Sentate. El café está frío pero despierta.
 
 \---
 
@@ -1209,45 +1221,48 @@ Había que subirla peldaño por peldaño, sin ascensor, sin milagro, sin “pobr
 
 Y lo peor —o lo mejor— era que, si lo lograba, ya no iba a poder culpar a nadie de lo que hiciera con su vida.
 # **<a name="_toc215679763"></a>Capítulo 6 – \*\*\* Mérito Torcido \*\*\***
-El pizarrón de La Escalera amaneció con una frase escrita en mayúsculas torcidas:
+El pizarrón de La Escalera amaneció con una frase escrita en mayúsculas torcidas, con ese marcador negro que Julián usaba como si fuera un arma:
 
-“EL MÉRITO NO ESTÁ MUERTO.\
-LO SECUESTRARON.”
+"EL MÉRITO NO ESTÁ MUERTO.\
+LO SECUESTRARON."
 
-Estanislao la leyó apenas entró, todavía con olor a fritura en la ropa del comedor. Julián estaba de espaldas, acomodando pilas de papeles en un orden que solo él parecía entender.
+Estanislao la leyó apenas entró, todavía con olor a fritura en la ropa del comedor donde había ayudado esa mañana. Había dormido mal, cuatro horas a lo sumo, entre pesadillas de motos perseguidas y sirenas. La pieza olía a humedad, la abuela había tosido toda la noche, y él se había quedado despierto escuchando el ventilador viejo que chirriaba como un grillo enfermo.
 
-Los demás pibes entraban de a poco, bostezando, dejando mochilas en el piso, peleando por un enchufe para el celular.
+Julián estaba de espaldas, acomodando pilas de papeles en un orden que solo él parecía entender. Tenía puesto el mismo pantalón de siempre, arrugado, y una camisa que parecía haber sobrevivido a varias batallas con el lavarropas.
+
+Los demás pibes entraban de a poco, bostezando, dejando mochilas en el piso, peleando por un enchufe para el celular. Eran las siete de la tarde, pero para muchos era como si fueran las siete de la mañana: venían del laburo, del comedor, de ayudar en casa, de buscar hermanos en la escuela. El cansancio era uniforme, democrático.
 
 —Siéntense —dijo Julián, sin darse vuelta—. Hoy vamos a hablar de una mala palabra.
 
-Se giró, tomó el marcador y subrayó “MÉRITO” en el pizarrón.
+Se giró, tomó el marcador y subrayó "MÉRITO" en el pizarrón con un trazo grueso que chirriaba.
 
-—En este país, si pronunciás esta palabra en voz alta te miran raro —siguió—. Algunos te acusan de facho. Otros de ingenuo. Otros se ríen.\
-Pero **todos** la usan cuando nadie los ve.
+—En este país, si pronunciás esta palabra en voz alta te miran raro —siguió, con esa voz pausada que usaba cuando estaba por decir algo importante—. Algunos te acusan de facho. Otros de ingenuo. Otros se ríen, como si hubieras dicho un chiste viejo.\
+Pero **todos** la usan cuando nadie los ve. Todos quieren que su esfuerzo valga. Todos quieren que el mérito cuente... para ellos.
 
-Se hizo un breve silencio.
+Se hizo un breve silencio. Afuera, un colectivo pasó ruidoso, el escape roto escupiendo humo negro que se colaba por la ventana mal cerrada.
 
-—¿Qué es el mérito para ustedes? —preguntó.
+—¿Qué es el mérito para ustedes? —preguntó Julián, señalando al grupo con el marcador.
 
-Las respuestas salieron atropelladas:
+Las respuestas salieron atropelladas, superpuestas:
 
 —Esfuerzo.\
 —Ganar algo porque te lo ganaste, no porque te lo regalaron.\
 —Que te vaya bien en algo porque hiciste las cosas bien.\
-—Ser mejor que otro.
+—Ser mejor que otro.\
+—Que no te caguen con lo que te corresponde.
 
-Julián hizo una mueca.
+Julián hizo una mueca, como si estuviera degustando cada respuesta.
 
-—La última es la que más ruido hace —dijo—. No porque esté mal competir, sino porque acá se confundió **mérito** con **superioridad moral**. Y ahí empezaron los problemas.
+—La última es la que más ruido hace —dijo—. No porque esté mal competir, sino porque acá se confundió **mérito** con **superioridad moral**. Y ahí empezaron los problemas. Y ahí entró la política a usar la palabra como garrote, para un lado y para el otro.
 
-Escribió dos columnas:
+Escribió dos columnas en el pizarrón, con su letra desprolija pero legible:
 
 MÉRITO\
 vs.\
 VERSIÓN TORCIDA DEL MÉRITO
 
-—El mérito sano —explicó— es simple: *hice un esfuerzo, aprendí algo, mejoré, aporté valor, y eso tiene un reconocimiento justo.*\
-En cambio, la versión torcida dice: *como yo tengo mérito, el mundo me debe todo, aunque hoy no esté haciendo nada.*
+—El mérito sano —explicó, caminando entre las sillas— es simple: *hice un esfuerzo, aprendí algo, mejoré, aporté valor, y eso tiene un reconocimiento justo.*\
+En cambio, la versión torcida dice: *como yo tengo mérito, el mundo me debe todo, aunque hoy no esté haciendo nada.* Es el mérito como excusa para sentirse superior, no como motor para seguir mejorando.
 
 Se rascó la cabeza, manchándose aún más de tinta.
 
