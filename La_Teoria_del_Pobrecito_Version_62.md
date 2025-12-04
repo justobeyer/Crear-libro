@@ -347,57 +347,73 @@ Por primera vez, la frase no le sonó a consuelo. Le sonó a amenaza.
 
 
 # <a name="_toc215679759"></a>**Capítulo 2 – \*\*\* Pobrecito por Hoy \*\*\***
-A la mañana siguiente, la fila en el salón del barrio era todavía más larga que la del comedor. Esta vez no repartían comida: repartían **formularios**.
 
-En la puerta, un cartel hecho a las apuradas:
+A la mañana siguiente, el sol pegaba a plomo sobre la vereda del salón comunal. La fila era todavía más larga que la del comedor. Esta vez no repartían comida: repartían **formularios**.
 
-“NUEVO PROGRAMA DE ACOMPAÑAMIENTO A FAMILIAS VULNERABLES.\
-INSCRIPCIÓN AQUÍ. NO SE QUEDEN AFUERA.”
+El calor subía desde el asfalto y la transpiración corría por las caras de los que esperaban. Algunos se abanicaban con los DNI, otros chusmeaban, y había una que otra criatura llorando por el sopor. El olor a fritura del puesto de empanadas de la esquina se mezclaba con el de la mugre acumulada en la cuneta.
 
-Estanislao llegó acompañando a la abuela, que caminaba despacio, agarrada de su brazo.
+En la puerta, un cartel hecho a las apuradas con una manta vieja y pintura blanca:
 
-—Yo ya viví bastante como para no hacerme la pobrecita ahora —bromeó ella—. Si hay para repartir, que repartan.
+"NUEVO PROGRAMA DE ACOMPAÑAMIENTO A FAMILIAS VULNERABLES.\
+INSCRIPCIÓN AQUÍ. NO SE QUEDEN AFUERA."
 
-La cola serpenteaba por la vereda. Algunos se abanicaban con los DNI, otros chusmeaban.
+Estanislao llegó acompañando a la abuela, que caminaba despacio, agarrada de su brazo. Ella venía con el vestido de ir a misa, el pelo recogido con una hebilla de carey que había sobrevivido tres décadas y cuatro inundaciones.
 
-—Dicen que dan una tarjeta nueva…\
-—Con eso pagás la luz, el gas, todo…\
-—Y capaz después lo aumentan si sigue la crisis…
+—Yo ya viví bastante como para no hacerme la pobrecita ahora —bromeó ella, mirando la fila que daba la vuelta a la manzana—. Si hay para repartir, que repartan. Ya me tocó hacer cola para el pan, para la leche, para los remedios... una más, ¿qué cambia?
 
-Ramiro apareció desde el fondo, colándose entre conocidos.
+Estanislao no respondió. Recordó las historias que le contaba la abuela de chico: las noches sin luz, el marido que volvía borracho y gastaba lo poco que había en la mesa de naipes, el hijo mayor que un día se fue a la capital y nunca volvió. Tres generaciones haciendo cola para que les dieran algo. Tres generaciones esperando.
 
-—¡Estani! —le gritó—. ¿Vos también viniste a anotarte o solo hacés de bastón VIP?
+La cola serpenteaba por la vereda. Había de todo: madres jóvenes con bebés en brazos, viejos con bastón, pibes en zapatillas rotas, mujeres con bolsas de mandado vacías. Todos con la misma cara de expectativa cansada.
 
-—La traigo a la abuela —respondió él—. Yo no sé si me entra.
+—Dicen que dan una tarjeta nueva… —comentó una vecina adelante.\
+—Con eso pagás la luz, el gas, todo… —agregó otra.\
+—Y capaz después lo aumentan si sigue la crisis…\
+—A mi cuñada le dieron el doble porque tiene cuatro pibes.\
+—Hay que tener pibes, entonces —se rió alguien con amargura.
 
-Ramiro se rió fuerte.
+Ramiro apareció desde el fondo, colándose entre conocidos con esa habilidad que tienen los que se criaron en el barrio para meterse en cualquier lado sin pedir permiso.
 
-—Si te sirve el consejo, hacete el pobrecito, hermano. Pobrecito vende.
+—¡Estani! —le gritó, haciéndose lugar con los codos—. ¿Vos también viniste a anotarte o solo hacés de bastón VIP?
 
-La señora delante de ellos, con dos nenes pegados a las piernas, se dio vuelta.
+—La traigo a la abuela —respondió él, señalándola—. Yo no sé si me entra.
 
-—Es que somos pobrecitos, m’hijo —dijo, casi ofendida—. ¿O usted tiene algún amigo millonario por acá?
+Ramiro se rió fuerte, pero Estanislao notó algo amargo debajo de esa risa. Un cansancio que no era vagancia, sino algo más profundo. Ramiro tenía veintiuno, pero las ojeras le sumaban diez años.
+
+—Si te sirve el consejo, hacete el pobrecito, hermano. Pobrecito vende. Cuanto más jodido te vean, más te dan.
+
+La señora delante de ellos, una mujer robusta con dos nenes pegados a las piernas y otro en la panza, se dio vuelta.
+
+—Es que somos pobrecitos, m'hijo —dijo, casi ofendida—. ¿O usted tiene algún amigo millonario por acá? ¿Le parece que hacemos cola cinco horas al sol por diversión?
+
+Los nenes tenían las caras sucias y las remeras agujeradas. Uno mordía una galletita que debía ser el desayuno.
 
 Ramiro levantó las manos, conciliador.
 
-—Yo lo que digo es que si el Estado quiere ayudar, que ayude. ¿Qué vamos a hacer? ¿Rechazarlo?
+—Yo lo que digo es que si el Estado quiere ayudar, que ayude. ¿Qué vamos a hacer? ¿Rechazarlo? Bastante tenemos con lo que tenemos.
 
-Estanislao no respondió. Miró a su alrededor. Nadie parecía estar incómodo con la escena. Nadie decía: “che, pero esto no puede ser para siempre”.\
-Al contrario: se respiraba una mezcla de resignación y expectativa, como en la fila de un recital gratis.
+—Eso —asintió la señora—. Que venga toda la ayuda que quieran. Mientras mis hijos coman, yo soy pobrecita de acá a la luna.
+
+Estanislao no respondió. Miró a su alrededor. Nadie parecía estar incómodo con la escena. Nadie decía: "che, pero esto no puede ser para siempre". Nadie preguntaba: "¿y qué pasa cuando se termine?".
+
+Al contrario: se respiraba una mezcla de resignación y expectativa, como en la fila de un recital gratis. Algo que te toca, no algo que te ganás.
 
 \---
 
-Adentro, unas empleadas revisaban papeles detrás de mesas plegables. Sobre la pared, una bandera del partido oficialista y una foto grande del Presidente sonriendo. Debajo, una frase en letras azules:
+Adentro, el aire estaba viciado. El olor a humedad se mezclaba con el de la tinta fresca de los formularios y el sudor de los cuerpos amontonados. Unas empleadas revisaban papeles detrás de mesas plegables de caño oxidado. Algunas mascaban chicle, otras miraban el celular entre trámite y trámite.
 
-“EN ESTE PAÍS, NADIE VA A PASAR NECESIDAD.”
+Sobre la pared, junto a la bandera del partido oficialista, había una foto grande del Presidente sonriendo. Era la sonrisa ensayada de alguien que sabe que lo están mirando. Debajo, una frase en letras azules:
 
-La abuela avanzó con su documento en la mano.
+"EN ESTE PAÍS, NADIE VA A PASAR NECESIDAD."
 
-—¿Vive con usted algún joven en edad laboral? —preguntó la chica de la mesa, leyendo el formulario.
+Estanislao leyó la frase dos veces. "Nadie va a pasar necesidad". Como si la necesidad fuera algo que se arreglaba con un formulario. Como si todo lo que hacía falta era anotarse.
+
+La abuela avanzó con su documento en la mano, gastado de tanto mostrarlo en oficinas, hospitales, municipios.
+
+—¿Vive con usted algún joven en edad laboral? —preguntó la chica de la mesa, sin levantar la vista del formulario. Tenía las uñas pintadas de rosa y un piercing en la nariz.
 
 La abuela señaló a Estanislao.
 
-—Éste. Labura de changas con la moto del vecino. Nada fijo.
+—Éste. Mi nieto. Labura de changas con la moto del vecino. Nada fijo.
 
 —¿Está en blanco?
 
@@ -405,335 +421,353 @@ La abuela señaló a Estanislao.
 
 —¿Estudia?
 
-—Tampoco.
+—Tampoco. Dejó la secundaria el año pasado. Ya sabe, la situación...
 
 La chica sonrió, aliviada, como si hubiera encontrado el casillero perfecto.
 
-—Entonces cumple las condiciones —dijo, marcando un tilde—. Familia con joven desocupado o en informalidad. Excelente.
+—Entonces cumple las condiciones —dijo, marcando un tilde con satisfacción—. Familia con joven desocupado o en informalidad. Excelente. Esto les va a dar puntos extra.
 
-Excelente. La palabra le cayó pesada a Estanislao, como si su vida fuera más valiosa cuanto peor estuviera ordenada.
+**Excelente.** La palabra le cayó pesada a Estanislao, como si su vida fuera más valiosa cuanto peor estuviera ordenada. Como si no estudiar y no tener trabajo fijo lo hiciera especial. Como si su fracaso fuera un mérito.
 
-—Firmá acá —le pidió la empleada—. Es solo para constancia.
+—Firmá acá —le pidió la empleada, dándole la birome—. Es solo para constancia.
 
-Él dudó un segundo.
+Él dudó un segundo. La birome se le resbaló un poco entre los dedos sudados.
 
 —¿Y esto por cuánto tiempo es? —preguntó.
 
-La chica se encogió de hombros.
+La chica se encogió de hombros sin darle importancia.
 
-—Por ahora es por seis meses. Pero esos programas siempre se renuevan. Mientras siga la situación así, la ayuda va a estar.\
+—Por ahora es por seis meses. Pero esos programas siempre se renuevan. Mientras siga la situación así, la ayuda va a estar. No te preocupes.
+
 —¿Y si la situación mejora? —insistió él.
 
-La chica lo miró como si hubiera preguntado algo fuera de lugar.
+La chica lo miró como si hubiera preguntado algo fuera de lugar. Como si "mejorar" no fuera una palabra que usara la gente de este lado del mostrador.
 
-—Mirá, flaco, hoy la mano viene dura. Aprovechá. **Pobrecito por hoy** es mejor que nada, ¿no?
+—Mirá, flaco, hoy la mano viene dura. Aprovechá. **Pobrecito por hoy** es mejor que nada, ¿no? No seas boludo.
 
-La frase se le clavó en la cabeza: “pobrecito por hoy”.
+La frase se le clavó en la cabeza: "pobrecito por hoy".
 
-Firmó. La birome se le resbaló un poco entre los dedos sudados.
+Firmó. ¿Qué lo hacía distinto de todos los demás en esa fila? También él había firmado. También había aceptado. También había dicho "sí" a cambio de algo que, en el fondo, no quería necesitar.
 
 \---
 
-Al salir, la abuela estaba contenta.
+Al salir, la abuela estaba contenta. Le brillaban los ojos como cuando había algo de comer en la mesa o cuando encontraba alguna oferta en el almacén.
 
-—¿Ves? Algo es algo. Esto nos va a aliviar un poco. Ya bastante tuviste que luchar desde chico.\
-Ahora nos toca un poquito de suerte.
+—¿Ves? Algo es algo. Esto nos va a aliviar un poco. Ya bastante tuviste que luchar desde chico. Ahora nos toca un poquito de suerte, nene.
 
-Él la miró con cariño. Si había alguien que merecía un respiro, era ella. Aun así, algo le chirriaba adentro.
+Él la miró con cariño. Si había alguien que merecía un respiro, era ella. La que lo había criado cuando su vieja laburaba de interna en casas de gente rica. La que le había enseñado a atarse los cordones, a cruzar la calle, a rezar antes de dormir aunque él nunca entendió bien a quién le rezaba.
 
-—Sí, abuela. Pero… ¿hasta cuándo va a ser así? —preguntó, sin saber bien cómo formularlo—. ¿Hasta cuándo vamos a estar en modo “pobrecito por hoy”?
+Aun así, algo le chirriaba adentro. Algo que no podía nombrar todavía pero que le pesaba como piedra en el estómago.
 
-Ella frunció el ceño.
+—Sí, abuela. Pero… ¿hasta cuándo va a ser así? —preguntó, sin saber bien cómo formularlo—. ¿Hasta cuándo vamos a estar en modo "pobrecito por hoy"?
 
-—Hasta que Dios quiera, nene. ¿Qué querés que te diga?
+Ella frunció el ceño, como si la pregunta la ofendiera un poco.
 
-Ramiro, que los esperaba en la esquina, sacudió la tarjeta recién aprobada.
+—Hasta que Dios quiera, nene. ¿Qué querés que te diga? ¿Que le mandemos una carta al Presidente? Nosotros somos gente de barrio, Estani. Esto es lo que hay.
 
-—Mirá, papá. Con esto, este mes estoy hecho. Una preocupación menos.\
+Ramiro, que los esperaba en la esquina fumando un pucho, sacudió la tarjeta recién aprobada como un trofeo.
+
+—Mirá, papá. Con esto, este mes estoy hecho. Una preocupación menos. Me cubro la luz, el gas, y me sobra para las birras del sábado.
+
 —¿Y el laburo en la construcción que ibas a probar? —preguntó Estanislao.
 
-Ramiro se rió.
+Ramiro se rió y tiró el pucho al piso.
 
-—Me dijeron que arranque en negro, que después ven si me blanquean. Esforzarme doce horas, comer polvo, arriesgarme a caerme de un andamio… y capaz ni siquiera me ponen en regla. En cambio, con esto… —agitó la tarjeta— …me entra fijo. Es matemática básica.
+—Me dijeron que arranque en negro, que después ven si me blanquean. Esforzarme doce horas al sol, comer polvo, arriesgarme a caerme de un andamio, arruinarme la espalda para toda la vida… y capaz ni siquiera me ponen en regla. En cambio, con esto… —agitó la tarjeta— …me entra fijo. Sin moverme. Sin jefe que me putee. Sin patrón que me negrée. Es matemática básica, Estani.
 
 —¿Y a largo plazo? —insistió Estanislao.
 
-Ramiro lo miró como si hablara otro idioma.
+Ramiro lo miró como si hablara otro idioma. Como si "largo plazo" fuera un concepto de otro planeta, algo que se enseñaba en las universidades donde no iba nadie del barrio.
 
-—A largo plazo, todos muertos, hermano. Acá el que piensa a largo plazo termina loco. Hay que sobrevivir hoy. Mañana vemos.
+—A largo plazo, todos muertos, hermano. Mi viejo se mató laburando cuarenta años y se murió a los cincuenta y cinco con los pulmones podridos. ¿Para qué? Acá el que piensa a largo plazo termina loco. Hay que sobrevivir hoy. Mañana vemos.
 
 \---
 
-Esa noche, en la canchita del barrio, el tema salió de nuevo. Entre picadas flojas y chistes, los pibes comparaban lo que les había tocado.
+Esa noche, en la canchita del barrio, el tema salió de nuevo. El olor a pasto seco y cerveza tibia flotaba en el aire mientras los pibes comparaban lo que les había tocado. Las luces de los faroles apenas iluminaban la cancha de tierra, y los grillos hacían coro con las risas.
 
-—A mi vieja le dieron menos porque yo estoy en negro en el super —se quejaba uno—. Me dijo que si renuncio y me anoto, capaz nos suben la ayuda.
+—A mi vieja le dieron menos porque yo estoy en negro en el super —se quejaba uno, un flaco de remera de River—. Me dijo que si renuncio y me anoto, capaz nos suben la ayuda. Que le salgo más caro laburando que sin laburo.
 
-—A mi tío le aumentaron todo cuando dejó de manejar el remis —agregó otro—. Sale más ganar poco sin laburar que matarse para nada, boludo.
+—A mi tío le aumentaron todo cuando dejó de manejar el remis —agregó otro, rubio, con una cicatriz en la ceja—. Sale más ganar poco sin laburar que matarse para nada, boludo. El tipo ahora se levanta a las once, mira tele todo el día, y cobra más que cuando se partía el lomo.
 
-Se rieron. No con maldad, sino con esa lógica torcida que se aprende a base de golpes. Todos entendían la cuenta: **esfuerzo mucho, recompensa poca** vs. **esfuerzo poco, recompensa segura**.
+Se rieron. No con maldad, sino con esa lógica torcida que se aprende a base de golpes. Todos entendían la cuenta: **esfuerzo mucho, recompensa poca** vs. **esfuerzo poco, recompensa segura**. ¿Quién era el boludo en esa ecuación?
 
-Todos, menos Estanislao, empezaban a sentir esa ecuación como natural.
+Todos, menos Estanislao, empezaban a sentir esa lógica como natural. Como el agua que corre para abajo. Como la noche que sigue al día.
 
-—Pero si todos hacemos eso, ¿quién sostiene todo esto? —preguntó él, apoyado en el alambrado.
+—Pero si todos hacemos eso, ¿quién sostiene todo esto? —preguntó él, apoyado en el alambrado oxidado—. ¿De dónde sale la plata para todas estas tarjetas?
 
-Un silencio breve, incómodo, cortó la charla. Luego, uno tiró:
+Un silencio breve, incómodo, cortó la charla. Las risas se apagaron por un segundo. Luego, uno tiró:
 
-—Eso que lo vean los de arriba. Para eso están.\
-—Claro —remató Ramiro—. A nosotros nos toca sobrevivir, no salvar al país. Pobrecitos, ¿te acordás?
+—Eso que lo vean los de arriba. Para eso están. Para eso cobran sueldazos.
 
-Las carcajadas volvieron, y con ellas el partido.
+—Claro —remató Ramiro, abriendo otra lata—. A nosotros nos toca sobrevivir, no salvar al país. Pobrecitos, ¿te acordás? Ésa es nuestra categoría. No la inventamos nosotros.
+
+Las carcajadas volvieron, y con ellas el partido. Alguien pateó la pelota, otro gritó "¡adentro!", y la charla se disolvió en el polvo que levantaban las corridas.
 
 Estanislao sonrió por compromiso, pero se quedó con la frase dándole vueltas:
 
-“Pobrecitos por hoy. Que el país se arregle solo.”
+"Pobrecitos por hoy. Que el país se arregle solo."
 
-Él empezaba a sospechar que el país **no se arreglaba solo**, justamente porque demasiada gente había hecho ese trato:\
-Aceptar ser pobrecito a corto plazo para no hacer el esfuerzo que cambiara las cosas a largo plazo.
+Él empezaba a sospechar que el país **no se arreglaba solo**, justamente porque demasiada gente había hecho ese trato: aceptar ser pobrecito a corto plazo para no hacer el esfuerzo que cambiara las cosas a largo plazo. Un millón de transacciones chiquitas que, juntas, formaban una jaula gigante.
 
 \---
 
-De vuelta en su pieza, abrió el cuaderno otra vez.\
-En la página donde había anotado la definición del día anterior, escribió debajo:
+De vuelta en su pieza, el ventilador viejo movía el aire caliente sin refrescar nada. Las aspas chirraban con cada vuelta, como quejándose de la vida. Afuera, se escuchaban los perros ladrándole a la noche y, a lo lejos, el bajo de un cumbia que venía de algún boliche.
 
-“Ser pobrecito **hoy** te da algo.\
+Abrió el cuaderno otra vez. Las hojas olían a humedad, como todo en esa casa.
+
+En la página donde había anotado la definición del día anterior, escribió debajo con letra chica:
+
+"Ser pobrecito **hoy** te da algo.\
 Ser pobrecito **siempre** te roba todo.\
-Un país lleno de pobrecitos a corto plazo, se condena a ser pobrecito para siempre.”
+Un país lleno de pobrecitos a corto plazo, se condena a ser pobrecito para siempre."
 
-Miró la frase.
+Miró la frase. Le gustaba cómo sonaba. Tenía el ritmo de algo importante.
 
-En el noticiero, otra vez, hablaban del nuevo programa.
+En el noticiero de la tele chueca, otra vez hablaban del nuevo programa. La periodista, una rubia de traje azul que nunca había pisado un barrio como el suyo, sonreía como si estuviera dando una buena noticia.
 
-—La iniciativa busca acompañar a los sectores más vulnerables —decía la periodista—. Todo indica que los índices de dependencia al Estado seguirán creciendo.
+—La iniciativa busca acompañar a los sectores más vulnerables —decía, con voz de locutora—. Todo indica que los índices de dependencia al Estado seguirán creciendo. Un éxito de gestión para el oficialismo.
 
-Estanislao apagó el televisor antes de que terminaran la frase.
+"Índices de dependencia." "Éxito de gestión."
 
-Por primera vez, sintió con claridad que no solo estaba en juego su vida, sino **la forma en que su país entero se miraba a sí mismo**.
+Estanislao apagó el televisor antes de que terminaran la frase. Se quedó mirando la pantalla negra, donde apenas se reflejaba su cara.
 
-La mayoría de sus amigos había elegido —consciente o inconscientemente— el camino fácil: pobrecitos para hoy.
+Por primera vez, sintió con claridad que no solo estaba en juego su vida, sino **la forma en que su país entero se miraba a sí mismo**. No era solo él. Eran millones. Millones de personas eligiendo el hoy por miedo al mañana.
 
-Él no sabía todavía qué iba a hacer. Lo único que tenía claro era que esa elección, repetida millones de veces, era la que estaba escribiendo el destino de San Aurelio.
+Él también lo había elegido, al menos por hoy. También había firmado. También había aceptado la tarjeta.
+
+La mayoría de sus amigos había tomado —consciente o inconscientemente— el camino fácil: pobrecitos para hoy.
+
+Él no sabía todavía qué iba a hacer. Lo único que tenía claro era que esa elección, repetida millones de veces, era la que estaba escribiendo el destino de San Aurelio. Y de todo el país.
 
 Y no le gustaba nada cómo sonaba ese final.
 
-
 # <a name="_toc215679760"></a>**Capítulo 3 – \*\*\* El Dueño de los Pobrecitos \*\*\***
+
 El acto era en la plaza central, pero el cartel decía otra cosa:
 
-“ENCUENTRO CON EL PUEBLO”.
+"ENCUENTRO CON EL PUEBLO".
 
-Sonaba más íntimo, más afectuoso. Como si el Presidente fuera un pariente que volvía al barrio después de mucho tiempo.
+Sonaba más íntimo, más afectuoso. Como si el Presidente fuera un pariente que volvía al barrio después de mucho tiempo. Como si fuera uno de ellos, aunque nadie del barrio tuviera custodia, ni helicóptero, ni traje italiano.
 
-Estanislao no tenía pensado ir. Sin embargo, el comedor cerró antes “para que todos puedan acercarse, es histórico”, dijo la encargada, y Ramiro lo arrastró casi a la fuerza.
+Estanislao no tenía pensado ir. Había dormido mal, dándole vueltas a las cosas del día anterior, a la tarjeta en el bolsillo, a las palabras de Ramiro sobre el largo plazo y los muertos. Sin embargo, el comedor cerró antes "para que todos puedan acercarse, es histórico", dijo la encargada con cara de no admitir réplica, y Ramiro lo arrastró casi a la fuerza.
 
-—Vamos, boludo. Si no te importa la patria, por lo menos andá por el choripán —bromeó.
+—Vamos, boludo. Si no te importa la patria, por lo menos andá por el choripán —bromeó, tirándolo del brazo.
 
-La plaza estaba llena. Banderas, bombos, parlantes que saturaban. Puestos de comida, globos para los chicos, camionetas oficiales, militantes con pecheras de colores.
+La plaza estaba llena. El olor a chori y el humo de las parrillas se mezclaban con el polvo que levantaba la gente al moverse. Banderas de todos colores —aunque predominaba el celeste y blanco del partido— flameaban sobre las cabezas. Bombos, parlantes que saturaban, puestos de comida, globos para los chicos, camionetas oficiales con antenas de transmisión en vivo, militantes con pecheras de colores repartiendo volantes y escarapelas.
 
-En el escenario, aún vacío, una gigantografía del Presidente sonriendo, brazos abiertos. Abajo, el slogan:
+En el escenario, aún vacío, había una gigantografía del Presidente sonriendo. Tenía los brazos abiertos, como esperando un abrazo. La sonrisa era perfecta, de ésas que solo se consiguen después de muchas pruebas frente al espejo. Abajo, el slogan:
 
-“UN LÍDER CERCA DE SUS POBRECITOS”.
+"UN LÍDER CERCA DE SUS POBRECITOS".
 
-Estanislao se detuvo en seco.
+Estanislao se detuvo en seco. Algo se le trabó en la garganta.
 
-—¿Vos leíste eso? —señaló el cartel.
+—¿Vos leíste eso? —señaló el cartel, casi sin poder creerlo.
 
 Ramiro miró y se encogió de hombros.
 
-—Y bueno, es marketing. La gente compra eso. Además, ¿no te gusta que se acuerden de nosotros?
+—Y bueno, es marketing. La gente compra eso. Además, ¿no te gusta que se acuerden de nosotros? Antes ni sabían que existíamos.
 
-Él no respondió. Había algo en esa palabra, repetida ahora en letras gigantes, que le quemaba la nuca.
+Él no respondió. Había algo en esa palabra, repetida ahora en letras gigantes sobre su cabeza, que le quemaba la nuca. "Pobrecitos". Como si fuera un título, una categoría oficial, un destino escrito en piedra.
 
 \---
 
-Antes del discurso, un diputado local tomó el micrófono. Tenía traje claro, camisa abierta y sonrisa fácil.
+Antes del discurso principal, un diputado local tomó el micrófono. Era un tipo de unos cuarenta años, bronceado como si recién volviera de la playa, con traje claro, camisa abierta y sonrisa fácil. Estanislao lo había visto en los afiches de la campaña: "El candidato del pueblo". Nunca había pisado el barrio hasta que hubo elecciones.
 
-—¡Gracias por estar acá, a pesar de todo lo que sufren! —gritó—. Sabemos lo que pasan. Sabemos lo que les duele. ¡Ustedes son el corazón de este país!
+—¡Gracias por estar acá, a pesar de todo lo que sufren! —gritó el diputado, con voz ensayada que rebotaba en los parlantes—. ¡Sabemos lo que pasan! ¡Sabemos lo que les duele! ¡Ustedes son el corazón de este país!
 
-Aplausos.
+Aplausos. Bombos. Gritos de apoyo.
 
 —Por años, los poderosos se olvidaron de ustedes, los de los barrios humildes, los ninguneados, los dejados de lado… ¡nuestros pobrecitos!
 
-Más aplausos. La palabra flotaba ahora como un elogio.
+Más aplausos. La palabra flotaba ahora como un elogio, no como un insulto.
 
-Estanislao miró alrededor. La abuela, emocionada, aplaudía con los ojos brillosos. Una señora lloraba. Un hombre levantaba a su hijo sobre los hombros para que viera mejor.
+Estanislao miró alrededor. La abuela, emocionada, aplaudía con los ojos brillosos. Una señora lloraba, sosteniéndose de una amiga. Un hombre levantaba a su hijo sobre los hombros para que viera mejor, como si estuvieran en un recital de rock. Había algo de fiesta, de carnaval, de comunión.
 
 Ramiro le dio un codazo.
 
-—Mirá, papá. Vos te enredás con los conceptos, pero la gente entiende una cosa simple: éste viene y te dice “yo te veo, yo te quiero, yo te doy”. ¿Qué más querés?
+—Mirá, papá. Vos te enredás con los conceptos, pero la gente entiende una cosa simple: éste viene y te dice "yo te veo, yo te quiero, yo te doy". ¿Qué más querés? Es más de lo que nos dio nadie.
 
 Estanislao se encogió de hombros.
 
-—Capaz que alguien que te diga “yo te exijo”, “yo te creo capaz”, “yo dejo de tratarte de pobrecito” —murmuró.
+—Capaz que alguien que te diga "yo te exijo", "yo te creo capaz", "yo dejo de tratarte de pobrecito" —murmuró, casi para sí mismo.
 
-Ramiro se rió fuerte.
+Ramiro se rió fuerte, la risa resonando entre la música y los bombos.
 
-—Eso no junta votos, hermano.
-
-\---
-
-Cuando el Presidente finalmente subió al escenario, la multitud explotó. Era más bajo de lo que parecía en la tele, pero su voz llenaba todo.
-
-—¡Mis queridos, mis queridas, mis pobrecitos amados! —arrancó, sin vergüenza—. ¡Qué orgullo verlos!
-
-Estanislao sintió un escalofrío. La palabra ya ni siquiera venía envuelta en eufemismos. Era directa, desnuda, y la gente la celebraba.
-
-—Sé que la están pasando mal —continuó el Presidente—. Sé que trabajan mucho y cobran poco. Sé que se esfuerzan y a veces no alcanza. ¡Yo lo sé! Porque yo también vengo de abajo. Porque yo también fui pobrecito.
-
-El público rugió. Esa parte de la historia siempre funcionaba.
-
-—Por eso, mientras yo esté acá, **nadie** les va a pedir que carguen solos con ese peso. Para eso está el Estado. Para eso estoy yo: para protegerlos. Para que no tengan que romperse el lomo por migajas, como antes.\
-Antes, los hacían creer que, si se esforzaban, iban a progresar. Mentiras. Ahora ya no les vamos a vender ese cuento
-
-Estanislao frunció el ceño. Esa frase, en medio del fervor, casi se perdía. Pero él la escuchó clara: **“Antes los hacían creer que, si se esforzaban, iban a progresar. Mentiras.”**
-
-—Hoy —siguió el Presidente— el progreso les llega por derecho, por justicia, no por sacrificio. ¡No por matarse trabajando! ¡Porque son el pueblo, y al pueblo se lo cuida!
-
-La plaza estalló en aplausos, banderas, bombos.
-
-“Progreso sin sacrificio”, repitió Estanislao en su cabeza, como quien paladea una medicina rara.
+—Eso no junta votos, hermano. Nadie vota al que te hace laburar. La gente vota al que te da.
 
 \---
 
-Cuando terminó el acto, bajaron del escenario varios funcionarios para mezclarse con la gente. Cámaras, selfies, sonrisas.
+Cuando el Presidente finalmente subió al escenario, la multitud explotó. Era más bajo de lo que parecía en la tele, más gordo también, pero su voz llenaba todo. Había algo magnético en él, una energía que hacía que la gente no pudiera dejar de mirarlo.
 
-Entre ellos venía uno que Estanislao había visto mil veces en la tele: **Elías Coronado**, el ministro estrella, el cerebro detrás de todos los programas sociales. Le decían “el Arquitecto del Pueblo”.
+—¡Mis queridos, mis queridas, mis pobrecitos amados! —arrancó, sin vergüenza, abriendo los brazos—. ¡Qué orgullo verlos!
 
-Elías caminaba rodeado de asesores, pero se detenía cada tanto a abrazar a alguien, besar a un bebé, escuchar un reclamo.
+Estanislao sintió un escalofrío. La palabra ya ni siquiera venía envuelta en eufemismos. Era directa, desnuda, y la gente la celebraba. La gritaban de vuelta, como un cántico de cancha.
+
+—Sé que la están pasando mal —continuó el Presidente, bajando la voz como si les hablara a cada uno personalmente—. Sé que trabajan mucho y cobran poco. Sé que se esfuerzan y a veces no alcanza. ¡Yo lo sé! Porque yo también vengo de abajo. Porque yo también fui pobrecito.
+
+El público rugió. Esa parte de la historia siempre funcionaba. No importaba que el Presidente tuviera tres casas, cuatro autos y una cuenta en Suiza. Lo que importaba era el "fui": fui pobre, fui como ustedes, fui de abajo.
+
+—Por eso, mientras yo esté acá, **nadie** les va a pedir que carguen solos con ese peso. Para eso está el Estado. Para eso estoy yo: para protegerlos. Para que no tengan que romperse el lomo por migajas, como antes.
+
+Hizo una pausa dramática. El silencio era total.
+
+—Antes, los hacían creer que, si se esforzaban, iban a progresar. Mentiras. Antes les vendían el cuento del mérito, del sacrificio, del trabajo duro. ¡Y ustedes se mataban para nada! Ahora ya no les vamos a vender ese cuento.
+
+Estanislao frunció el ceño. Esa frase, en medio del fervor, casi se perdía. Pero él la escuchó clara: **"Antes los hacían creer que, si se esforzaban, iban a progresar. Mentiras."**
+
+Era la primera vez que escuchaba a un político decir abiertamente que el esfuerzo era un engaño. Que el trabajo duro era una trampa. Que no valía la pena intentar.
+
+—Hoy —siguió el Presidente, levantando la voz— el progreso les llega por derecho, por justicia, no por sacrificio. ¡No por matarse trabajando! ¡Porque son el pueblo, y al pueblo se lo cuida!
+
+La plaza estalló en aplausos, banderas, bombos. La abuela lloraba de la emoción. Una vecina gritaba "¡Te quiero!".
+
+"Progreso sin sacrificio", repitió Estanislao en su cabeza, como quien paladea una medicina rara. ¿Era eso posible? ¿O era la trampa más grande de todas?
+
+\---
+
+Cuando terminó el acto, bajaron del escenario varios funcionarios para mezclarse con la gente. Cámaras, selfies, sonrisas, apretones de manos. Todo calculado para la foto, pero la gente lo sentía real.
+
+Entre ellos venía uno que Estanislao había visto mil veces en la tele: **Elías Coronado**, el ministro estrella, el cerebro detrás de todos los programas sociales. Le decían "el Arquitecto del Pueblo". Era el que diseñaba los planes, las tarjetas, los subsidios. El que decidía quién recibía y quién no.
+
+Elías caminaba rodeado de asesores con carpetas, pero se detenía cada tanto a abrazar a alguien, besar a un bebé, escuchar un reclamo. Tenía la sonrisa fácil del político profesional, pero los ojos fríos del que calcula cada movimiento.
 
 De pronto, se tropezó con Ramiro, que estaba más atento al celular que al camino.
 
-—Disculpe, ministro —dijo Ramiro, medio nervioso.
+—Disculpe, ministro —dijo Ramiro, medio nervioso, casi haciendo una reverencia.
 
-Elías le puso la mano en el hombro, como si lo conociera de toda la vida.
+Elías le puso la mano en el hombro, como si lo conociera de toda la vida. El gesto parecía genuino, pero Estanislao notó que era el mismo gesto que había hecho con las diez personas anteriores.
 
 —Nada que disculpar, hijo. ¿Cómo estás? ¿Laburando, estudiando, peleándola? —preguntó, con sonrisa medida.
 
-Ramiro levantó la tarjeta del programa nuevo.
+Ramiro levantó la tarjeta del programa nuevo, la misma que habían sacado ayer.
 
 —Gracias a esto, mejor. Me ayuda a llegar a fin de mes.
 
-El ministro asintió, satisfecho.
+El ministro asintió, satisfecho. Tenía la expresión de un padre orgulloso.
 
 —Para eso estamos. Para que no tengan que pasar hambre nunca más. ¿Ves? **Mientras nosotros gobernemos, ningún pobrecito se va a quedar solo.**
 
-Sacó una lapicera, anotó algo en una libreta que le alcanzó un asistente.
+Sacó una lapicera, anotó algo en una libreta que le alcanzó un asistente. Todo era protocolo, pero parecía improvisado.
 
 —¿Nombre? —preguntó.
 
 —Ramiro.
 
-—Ramiro. Un buen nombre. Que no te falte la ayuda, Ramiro —le dijo, como si le diera una bendición.
+—Ramiro. Un buen nombre. Que no te falte la ayuda, Ramiro —le dijo, como si le diera una bendición, un amuleto contra la desgracia.
 
-Estanislao lo observaba en silencio, fascinado y molesto.
+Estanislao lo observaba en silencio, fascinado y molesto a la vez. Había algo hipnótico en el ministro, algo que hacía que la gente quisiera creerle.
 
-El ministro se giró hacia él.
+El ministro se giró hacia él, como si recién lo notara.
 
 —¿Y vos? —preguntó—. ¿Ya te anotaste?
 
 —Sí —respondió Estanislao—. Pero tengo una duda.
 
-Elías lo miró con un brillo distinto, atento.
+Elías lo miró con un brillo distinto, atento. Los asesores se tensaron imperceptiblemente.
 
 —A ver.
 
 —¿No le parece que, si siempre nos ayudan, nunca nos van a pedir más? —disparó, sin rodeos—. O sea… si siempre somos pobrecitos, ¿cuándo vamos a dejar de serlo?
 
-Un par de asesores hicieron un gesto de alarma. Esa no era la pregunta típica para la foto.
+Un par de asesores hicieron un gesto de alarma. Esa no era la pregunta típica para la foto. Ese pibe no seguía el guion.
 
-El ministro, sin embargo, sonrió. Había lidiado con peores.
+El ministro, sin embargo, sonrió. Había lidiado con peores. Tenía años de práctica esquivando balas.
 
-—Qué buena pregunta, Estanislao —dijo, viendo su nombre en el formulario que otro asistente ya tenía en mano—. Te soy sincero: en un país ideal, nadie necesitaría ayuda. Todos tendríamos trabajo digno, educación de calidad, oportunidades.\
-Pero… —hizo una pausa dramática— …no vivimos en un país ideal. Vivimos en **este**. Y acá, si no los cuidamos, se los comen vivos.
+—Qué buena pregunta, Estanislao —dijo, viendo su nombre en el formulario que otro asistente ya tenía en mano—. Te soy sincero: en un país ideal, nadie necesitaría ayuda. Todos tendríamos trabajo digno, educación de calidad, oportunidades para todos.\
+Pero… —hizo una pausa dramática, calibrada al milímetro— …no vivimos en un país ideal. Vivimos en **este**. Y acá, si no los cuidamos, se los comen vivos.
 
-Se inclinó un poco hacia él, como confiando un secreto.
+Se inclinó un poco hacia él, como confiando un secreto, bajando la voz para que solo Estanislao pudiera escuchar.
 
-—¿Vos entendés lo que es explicarle a una madre que tiene que “esforzarse más” mientras sus hijos tienen hambre? ¿Vos le podés decir a un pibe que vive entre tiros que “con disciplina todo se puede”? Eso… —negó con la cabeza— …eso es crueldad.\
-Nosotros en cambio les decimos: “no se preocupen, nosotros los vamos a sostener”. Eso no los hace menos. Los hace nuestros.
+—¿Vos entendés lo que es explicarle a una madre que tiene que "esforzarse más" mientras sus hijos tienen hambre? ¿Vos le podés decir a un pibe que vive entre tiros que "con disciplina todo se puede"? Eso… —negó con la cabeza, con gesto de tristeza ensayada— …eso es crueldad.\
+Nosotros en cambio les decimos: "no se preocupen, nosotros los vamos a sostener". Eso no los hace menos. Los hace nuestros.
 
-“Los hace nuestros.” La palabra quedó colgando.
+**"Los hace nuestros."** La palabra quedó colgando en el aire, pesada como plomo.
 
-El ministro le dio una palmadita en el brazo y se fue a sacarse fotos con otra tanda de vecinos.
+El ministro le dio una palmadita en el brazo y se fue a sacarse fotos con otra tanda de vecinos. Ya había cumplido su cuota de interacción con la juventud crítica.
 
 Ramiro miró a Estanislao con media sonrisa.
 
-—Te quiso decir “no rompas las bolas”, pero en fino —se burló.
+—Te quiso decir "no rompas las bolas", pero en fino —se burló.
 
 Estanislao no se rió. Seguía masticando la frase.
 
-“Eso no los hace menos. Los hace nuestros.”
+"Eso no los hace menos. Los hace nuestros."
 
-Al final, la teoría del pobrecito no era solo un error. **Era una herramienta de poder.**
+Al final, la teoría del pobrecito no era solo un error. **Era una herramienta de poder.** Una forma de tener gente que te debía, que te necesitaba, que no podía irse aunque quisiera. Clientes eternos. Votos cautivos. Pobrecitos para siempre.
 
 \---
 
 Más tarde, de regreso al barrio, el tono cambió. El aire estaba pesado, no por la política, sino por otra cosa.
 
-En la esquina había un auto negro que Estanislao no conocía. Música baja, vidrios polarizados. Un par de pibes iban y venían, nerviosos, hablando en susurros, mirando demasiado a los costados.
+En la esquina había un auto negro que Estanislao no conocía. Un BMW viejo pero bien mantenido, de esos que solo andan por el barrio cuando traen problemas. Música baja, vidrios polarizados. Un par de pibes iban y venían, nerviosos, hablando en susurros, mirando demasiado a los costados.
 
 Ramiro bajó la voz.
 
-—Llegaron los del otro lado de la ciudad —comentó—. Traen “trabajo”.
+—Llegaron los del otro lado de la ciudad —comentó—. Traen "trabajo".
 
-“Trabajo.” Otra palabra que en el barrio cambiaba de significado según quién la dijera.
+"Trabajo." Otra palabra que en el barrio cambiaba de significado según quién la dijera. Trabajo podía ser albañilería, delivery, pintura de casas. O podía ser otra cosa. La cosa que nadie nombraba pero todos conocían.
 
 —¿Qué trabajo? —preguntó Estanislao, aunque ya se intuía la respuesta.
 
 Ramiro se acercó un poco más, como quien comparte un secreto tentador.
 
-—Dicen que necesitan repartidores. Gente con moto, que conozca las calles. Pagan mejor que cualquier depósito, no te piden recibo, no te clavan con horarios fijos. Vos llevás y traés. Rápido. Sin preguntas.
+—Dicen que necesitan repartidores. Gente con moto, que conozca las calles, que sepa moverse rápido. Pagan mejor que cualquier depósito, no te piden recibo, no te clavan con horarios fijos. Vos llevás y traés. Rápido. Sin preguntas.
 
-Estanislao miró su casco abollado, la moto prestada, las cuentas en la mesa de la cocina.
+Estanislao miró su casco abollado, la moto prestada del vecino, las cuentas en la mesa de la cocina que su vieja trataba de esconder pero que él siempre veía.
 
 —¿Y qué llevan? —insistió, por si había una mínima chance de ingenuidad.
 
-Ramiro lo miró fijo.
+Ramiro lo miró fijo, con esa mirada de "sabés la respuesta".
 
 —No son pizzas, Estani.
 
-Silencio.
+Silencio. El BMW arrancó y se perdió por la calle de tierra, dejando una nube de polvo.
 
-—Mirá —siguió Ramiro—. Vos te matás doce horas para que el Negro te pague dos mangos y capaz ni te blanquea. Acá en dos meses te hacés lo que allá en dos años. Te comprás tu propia moto, ayudás a tu vieja, le cambiás el techo a tu abuela.\
-A corto plazo… —sonrió— …salís del modo pobrecito.
+—Mirá —siguió Ramiro, bajando más la voz—. Vos te matás doce horas para que el Negro te pague dos mangos y capaz ni te blanquea. Te jode la espalda, te arruina las rodillas, te come la vida. Acá en dos meses te hacés lo que allá en dos años. Te comprás tu propia moto, ayudás a tu vieja, le cambiás el techo a tu abuela que gotea cada vez que llueve.\
+A corto plazo… —sonrió, con esa sonrisa que tenía algo de tentación y algo de trampa— …salís del modo pobrecito.
 
-“Salir del modo pobrecito.” La frase le pegó como un golpe seco.
+**"Salir del modo pobrecito."** La frase le pegó como un golpe seco. Era lo que él quería. Pero no así. No de esa forma.
 
 —¿Y a largo plazo? —preguntó, casi por reflejo.
 
-Ramiro volvió a usar el mismo escudo que en la canchita.
+Ramiro volvió a usar el mismo escudo que en la canchita. El mismo mantra que repetía el barrio entero.
 
-—A largo plazo, este barrio se come a todos. Mejor agarrar algo mientras se pueda.
+—A largo plazo, este barrio se come a todos, hermano. Mejor agarrar algo mientras se pueda. Los que esperan se mueren esperando.
 
 \---
 
-Esa noche, Estanislao no pudo dormir.
+Esa noche, Estanislao no pudo dormir. La cama chirraba cada vez que se movía, y el calor no daba tregua.
 
-De un lado, las palabras del Presidente y del ministro: **progreso sin sacrificio, cuidado eterno, pobrecitos amados**.
+De un lado, las palabras del Presidente y del ministro: **progreso sin sacrificio, cuidado eterno, pobrecitos amados**. Un camino cómodo, seguro, pero que te dejaba en el mismo lugar para siempre.
 
-Del otro, la oferta no dicha del auto negro en la esquina: **dinero rápido, respeto forzado, peligro a la vuelta de la esquina**.
+Del otro, la oferta no dicha del auto negro en la esquina: **dinero rápido, respeto forzado, peligro a la vuelta de la esquina**. Un camino corto, tentador, pero que terminaba en la cárcel o en el cementerio.
 
-Uno te prometía que no ibas a tener que esforzarte demasiado nunca más, si jugabas a ser pobrecito. El otro te prometía que podías “progresar” rápido, si estabas dispuesto a cruzar una línea de la que pocos volvían igual.
+Uno te prometía que no ibas a tener que esforzarte demasiado nunca más, si jugabas a ser pobrecito. El otro te prometía que podías "progresar" rápido, si estabas dispuesto a cruzar una línea de la que pocos volvían igual.
 
-En el cuaderno, escribió otra vez:
+Ninguno de los dos le gustaba.
 
-“Camino A: pobrecito para siempre, pero cuidado.\
+En el cuaderno, escribió otra vez, con la luz de la luna entrando por la ventana:
+
+"Camino A: pobrecito para siempre, pero cuidado.\
 Camino B: dejar de ser pobrecito con plata sucia, riesgo alto.\
-¿Existe un Camino C?”
+¿Existe un Camino C?"
 
 Debajo, sin pensarlo demasiado, agregó:
 
-“Camino C = esforzarme, estudiar, laburar bien, crear algo propio…\
-Problema: en este país, ese camino casi no se ve. Nadie te lo muestra, nadie lo premia.”
+"Camino C = esforzarme, estudiar, laburar bien, crear algo propio…\
+Problema: en este país, ese camino casi no se ve. Nadie te lo muestra, nadie lo premia. Al que intenta le dicen traidor, le dicen que se cree más, le dicen que abandonó a los suyos."
 
 Cerró el cuaderno.
 
 Sabía que, tarde o temprano, alguien le iba a hacer la pregunta frontal:
 
-“¿Qué vas a hacer, Estani? ¿Te quedás pobrecito agradecido, te hacés plata con la droga, o te inventás un camino que nadie acá cree posible?”
+"¿Qué vas a hacer, Estani? ¿Te quedás pobrecito agradecido, te hacés plata con la droga, o te inventás un camino que nadie acá cree posible?"
 
 Y se dio cuenta de algo más inquietante:\
 el país entero parecía estar discutiendo lo mismo, solo que en otra escala.
 
 San Aurelio, como él, estaba atrapado entre **ser pobrecito para siempre**, **hacerse el vivo a costa de todo**… o buscar un tercer camino que aún no tenía nombre.
+
 # **<a name="_toc215679761"></a>Capítulo 4 – \*\*\* Progreso Rápido \*\*\***
 La primera vez fue casi por vergüenza.
 
