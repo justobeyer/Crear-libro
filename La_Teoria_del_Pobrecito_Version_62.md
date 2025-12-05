@@ -2946,9 +2946,17 @@ Un idioma en el que todos se daban permiso para no cambiar nada, siempre con bue
 
 Y si había algo que la lectura, el trabajo y La Escalera le habían enseñado, era que **ningún país se levanta hablando ese idioma para siempre**.
 # **<a name="_toc215679770"></a>Capítulo 13 – \*\*\* El Precio de No Competir \*\*\***
+La noche había llegado temprano ese viernes de mayo, como si el sol también estuviera cansado de un país que se movía a media máquina.
+
+Estanislao caminó las diez cuadras desde la parada del colectivo hasta La Escalera con las manos hundidas en los bolsillos de la campera y el cuello levantado contra el viento helado que bajaba desde la avenida. Las luces de los faroles titilaban como siempre —algunos rotos, otros con esa luz amarilla que hacía que todo pareciera más viejo de lo que era—, y el olor a guiso del comedor de Marta flotaba hasta la esquina, mezclado con el humo de los escapes de los colectivos que pasaban repletos de gente con cara de agotamiento.
+
+Había dejado el taller temprano porque Mauro no tenía trabajo nuevo esa tarde, y porque Julián había mandado un mensaje al grupo: "Hoy vengan todos. Hay cosas que no se aprenden de a poco."
+
+Cuando empujó la puerta de La Escalera —esa puerta de madera que chirriaba siempre y que alguien había pintado de azul oscuro hacía años, aunque ahora el azul se descascaraba dejando ver capas anteriores de verde, de marrón, de historia—, encontró el lugar más lleno de lo habitual. Había sillas extra sacadas del depósito, una estufa a gas que alguien había conectado con una manguera dudosa, y el olor a café recalentado que siempre flotaba cuando Julián preparaba una de sus "clases largas".
+
 El pizarrón de La Escalera estaba lleno antes de que llegara nadie.
 
-Julián había escrito tres frases grandes, una debajo de la otra:
+Julián había escrito tres frases grandes, una debajo de la otra, con esa letra desprolija pero legible que usaba cuando quería que las palabras pegaran fuerte:
 
 “NO QUIERO PERDER.”\
 “NO QUIERO ESFORZARME.”\
@@ -3252,7 +3260,13 @@ Y eso, aunque nadie lo aplaudiera, ya era una forma de victoria.
 # **<a name="_toc215679771"></a>Capítulo 14 – \*\*\* La Visita que Cuida \*\*\***
 La mañana era tranquila. Demasiado tranquila.
 
-Mauro y Estanislao estaban ajustando una estructura de metal para una verdulería del barrio vecino. No era un gran contrato, pero pagaba en efectivo y no dependía de gigantes ni de correos con copia oculta.
+El invierno de San Aurelio tenía esa cualidad extraña: algunos días eran grises y helados, con viento que cortaba la cara, y otros —como éste— llegaban con un sol tibio que engañaba, que hacía creer que todo podía estar bien aunque nada lo estuviera. El cielo estaba limpio, casi celeste de postal, y desde el taller se escuchaba el canto de unos pájaros que habían anidado en el hueco de un árbol al costado del galpón, ese árbol seco que Mauro nunca había tenido tiempo de cortar.
+
+Estanislao había llegado más temprano que de costumbre, con el termo bajo el brazo y el cuaderno en la mochila, porque la noche anterior se había quedado hasta tarde escribiendo y necesitaba compensar. Todavía sentía el frío de la cama húmeda del barrio, el olor a kerosén que su abuela encendía para calentar la pieza, el chirrido de la puerta de chapa cuando salió sin despertar a nadie.
+
+Mauro ya estaba ahí, como siempre. Tenía puesta la remera manchada de todos los días, esa que había sido azul y ahora era de un color indefinido, y el delantal de cuero colgado del clavo junto a la puerta. Las manos le brillaban con el aceite de máquina que nunca terminaba de quitarse del todo, y en la mesa de trabajo había una taza de café frío —el tercero de la mañana, calculó Estanislao— y un paquete de galletitas de agua a medio abrir.
+
+Mauro y Estanislao estaban ajustando una estructura de metal para una verdulería del barrio vecino. No era un gran contrato, pero pagaba en efectivo y no dependía de gigantes ni de correos con copia oculta. Las barras de hierro se iban ensamblando con paciencia, cada soldadura verificada dos veces porque Mauro no toleraba el trabajo a medias.
 
 —Si logramos que quede firme y barata —decía Mauro—, capaz el verdulero nos recomienda a otros. Pequeño mercado, menos glamoroso que Ríos, pero por lo menos, si alguien se cae, nos enteramos por nombre y no por noticiero.
 
@@ -3464,10 +3478,20 @@ Y aunque nadie fuera a hacerles una nota por eso, era justo en ese punto minúsc
 # **<a name="_toc215679772"></a>Capítulo 15 – \*\*\* Los que Defienden y los que Ofrecen \*\*\***
 El taller estaba distinto, pero no por gusto.
 
-Había carteles nuevos en las paredes: “USO OBLIGATORIO DE CASCO”, “SALIDA DE EMERGENCIA”, “ZONA DE RIESGO”. El extintor rojo colgaba brillante, casi provocador.\
-Mauro había gastado lo que no tenía para que el papel de la inspección no se convirtiera en clausura.
+Habían pasado cuatro días desde la inspección, y cada uno de esos días se había sentido como un mes. Mauro apenas dormía —Estanislao lo notaba en las ojeras cada vez más profundas, en el temblor leve de las manos cuando sostenía el café de la mañana, en el silencio largo entre frase y frase—. El taller había cambiado no porque hubieran querido mejorarlo, sino porque los habían obligado a elegir entre cumplir o cerrar.
+
+El olor ya no era solo a metal y serrín. Ahora había un perfume nuevo, ese olor químico de la pintura fresca de los carteles obligatorios, el plástico del extintor recién comprado, el desinfectante que Mauro había pasado por el piso porque "si vienen de nuevo, que no tengan nada que decir del polvo".
+
+Afuera, el día estaba gris pero sin lluvia, uno de esos días de junio donde el frío se mete en los huesos y no sale hasta que uno se acuesta. El árbol seco del costado del galpón se movía con el viento, y sus ramas secas hacían un ruido que sonaba a queja, a protesta muda contra un mundo que seguía girando sin preguntarle nada.
+
+Había carteles nuevos en las paredes: "USO OBLIGATORIO DE CASCO", "SALIDA DE EMERGENCIA", "ZONA DE RIESGO". Letras negras sobre fondo amarillo, como advertencias de un peligro que antes nadie nombraba y ahora estaba en todas partes. El extintor rojo colgaba brillante, casi provocador, en el lugar exacto donde antes había una foto del equipo de fútbol que Mauro seguía desde chico.
+
+Las gafas de seguridad estaban sobre la mesa, todavía con la etiqueta del precio —un precio que a Estanislao le había parecido obsceno cuando Mauro lo mencionó, casi medio sueldo de un mes de changas—, y los guantes homologados colgaban de un gancho junto a la puerta, todavía rígidos porque nadie los había usado.
+
+Mauro había gastado lo que no tenía para que el papel de la inspección no se convirtiera en clausura. Había pedido prestado a un primo que vivía en el centro, había vendido unas herramientas viejas que guardaba "por las dudas", había aceptado un adelanto del verdulero a cambio de un descuento que le dolía en el alma. Todo para cumplir con normas que, según él, "no las había inventado nadie que supiera lo que es levantar un taller desde cero".
 
 —Listo —dijo, mirando alrededor—. Si con esto no se sienten tranquilos, que vengan y trabajen ellos.
+
 
 Ni bien terminó la frase, sonó el timbre.
 
