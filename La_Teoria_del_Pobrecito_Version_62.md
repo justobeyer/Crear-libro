@@ -1466,17 +1466,25 @@ La respuesta todavía no tenía forma, pero por primera vez **no sonaba resignad
 # **<a name="_toc215679764"></a>Capítulo 7 – \*\*\* Los Dueños del Dolor \*\*\*** 
 El edificio no tenía nada que ver con el barrio de Estanislao.
 
-Vidrios espejados, recepción con mármol frío, olor a perfume caro y desinfectante. El logo de la empresa, en acero pulido, colgaba en la pared principal como un escudo familiar.
+Lo vio desde una cuadra antes: una torre de vidrio espejado que reflejaba las nubes como si quisiera demostrar que hasta el cielo le pertenecía. A medida que se acercaba, el contraste se volvía más brutal. Las veredas estaban impecables, sin un papel en el piso. Las plantas de los canteros parecían recién cortadas por un jardinero invisible. Había guardias de seguridad con trajes negros y auriculares, mirando a todos los que pasaban como si fueran potenciales amenazas.
 
-**“Grupo Alborada – Construyendo Futuro.”**
+Estanislao sintió que su remera gastada y sus zapatillas con las suelas despegándose brillaban bajo esa luz de oficina como evidencia de un crimen que no había cometido.
 
-—Mirá lo que es esto, hermano —susurró Ramiro, con la gorrita en la mano—. Acá sí que no hay filtraciones ni humedad.
+Vidrios espejados, recepción con mármol frío, olor a perfume caro y desinfectante. El aire acondicionado estaba tan fuerte que al entrar sintió un escalofrío que le recorrió la espalda. El logo de la empresa, en acero pulido, colgaba en la pared principal como un escudo familiar. Las letras brillaban con una luz led suave, como si la elegancia se pudiera comprar por metro cuadrado.
 
-Estaban en el hall, esperando a que comenzara una charla “motivacional” abierta al público. La Escalera tenía un cupo limitado de invitaciones; Julián había insistido en que algunos fueran a “ver el otro mundo”.
+**"Grupo Alborada – Construyendo Futuro."**
 
-—No para envidiar —aclaró—, sino para entender.
+La recepcionista tenía una sonrisa perfecta y uñas tan largas que Estanislao se preguntó cómo podía escribir en el teclado. Los miraba con esa cortesía estudiada que no llegaba a los ojos, como si supiera exactamente de qué barrio venían solo con verles la cara.
 
-Estanislao miraba todo con una mezcla de curiosidad y desconfianza. Se sentía fuera de lugar con sus zapatillas gastadas y la campera prestada. A su lado, empleados de oficina con notebooks y mochilas prolijas hojeaban folletos brillantes.
+—Mirá lo que es esto, hermano —susurró Ramiro, con la gorrita en la mano, dándole vueltas nerviosamente entre los dedos—. Acá sí que no hay filtraciones ni humedad. Esto es guita de verdad, no la miseria que manejamos nosotros.
+
+Estanislao no respondió. Estaba demasiado ocupado tratando de no tocar nada, de no dejar huellas, de no delatar con cada gesto que él no pertenecía a ese mundo.
+
+Estaban en el hall, esperando a que comenzara una charla "motivacional" abierta al público. La Escalera tenía un cupo limitado de invitaciones; Julián había insistido en que algunos fueran a "ver el otro mundo".
+
+—No para envidiar —había aclarado la noche anterior, con esa mirada que siempre parecía ver más allá—, sino para entender. Para que vean de dónde vienen los discursos que después les bajan a ustedes.
+
+Estanislao miraba todo con una mezcla de curiosidad y desconfianza. Se sentía fuera de lugar con sus zapatillas gastadas y la campera prestada que le quedaba un poco grande. A su lado, empleados de oficina con notebooks y mochilas prolijas hojeaban folletos brillantes. Olían a shampoo caro y café de máquina. Ninguno los miraba directamente, pero todos parecían conscientes de su presencia, como se es consciente de una mancha en el mantel.
 
 En el escenario del auditorio, un banner mostraba la cara del invitado:
 
@@ -1719,27 +1727,33 @@ Por primera vez, la frase no sonó a soberbia. Sonó a punto de partida.
 # **<a name="_toc215679765"></a>Capítulo 8 – \*\*\* Primer Peldaño \*\*\***
 El aula estaba más llena de lo habitual. Era noche de examen.
 
+Estanislao llegó temprano, cosa rara en él. Quería sentarse cerca de la ventana, donde entraba un poco de aire fresco del patio. Pero más que nada, quería unos minutos de silencio antes de que empezara todo. Unos minutos para convencerse de que no iba a hacer el ridículo.
+
+Afuera, el cielo estaba pintado de ese naranja sucio de las noches de verano en el barrio. Se escuchaban a lo lejos los parlantes de un cumpleaños, el ladrido de un perro, el motor de alguna moto pasando rápido. Pero adentro de La Escalera, el único sonido era el de las sillas moviéndose, las carpetas abriéndose, los suspiros nerviosos.
+
 Una fila de mesas improvisadas, hojas blancas, biromes que fallaban en el peor momento. En el pizarrón, Julián había escrito en letras chiquitas, casi irónicas:
 
-“TRANQUILOS: NADIE SE MUERE POR UN EXAMEN.\
-(PERO ALGUNOS EMPIEZAN A VIVIR DISTINTO DESPUÉS DE UNO).”
+"TRANQUILOS: NADIE SE MUERE POR UN EXAMEN.\
+(PERO ALGUNOS EMPIEZAN A VIVIR DISTINTO DESPUÉS DE UNO)."
 
-Estanislao respiraba hondo. Hacía años que no se sentaba frente a un examen “de verdad”.\
-Los últimos controles que recordaba eran los policiales, no los académicos.
+Estanislao respiraba hondo. Hacía años que no se sentaba frente a un examen "de verdad". Se había acostumbrado a otro tipo de pruebas: las de la calle, las del laburo en negro, las de ver si llegaba la plata para fin de mes. Los últimos controles que recordaba eran los policiales, no los académicos.
 
-Julián caminaba entre las filas, con su camisa arrugada y un termo bajo el brazo.
+Daniela, una chica de pelo corto y aros grandes que siempre se sentaba adelante, le hizo un gesto de ánimo desde el otro lado del aula. Toto, un pibe flaco con cara de haber dormido poco, movía la pierna sin parar debajo del banco. Mirta, que tenía dos hijos y venía a estudiar después de laburar todo el día limpiando casas, revisaba sus apuntes con una concentración casi religiosa.
 
-—Es un parcial, no un juicio final —dijo—. Si les va bien, demuestran que pueden. Si les va mal, demuestran dónde tienen que ajustar.\
-Lo único que no acepto es el “pobrecito yo no puedo”. Eso ni lo escriban.
+Julián caminaba entre las filas, con su camisa arrugada y un termo bajo el brazo. Tenía esa calma extraña de los que ya pasaron por muchos exámenes, de los dos lados del escritorio.
 
-Una risa nerviosa recorrió el aula.
+—Es un parcial, no un juicio final —dijo, mirándolos a todos—. Si les va bien, demuestran que pueden. Si les va mal, demuestran dónde tienen que ajustar. Ambas cosas son información útil.\
+Lo único que no acepto es el "pobrecito yo no puedo". Eso ni lo escriban. Si llegaron hasta acá, ya demostraron que pueden.
+
+Una risa nerviosa recorrió el aula. Algunos se relajaron un poco. Otros apretaron más fuerte la birome.
 
 \---
 
-Las consignas no eran imposibles, pero tampoco un regalo. Comprensión de texto, un poco de historia, algo de lógica.\
+Las consignas no eran imposibles, pero tampoco un regalo. Comprensión de texto, un poco de historia, algo de lógica. No había nada de memoria pura; todo requería pensar, conectar, argumentar.
+
 Había una pregunta que se parecía demasiado a su propia vida:
 
-“Explique con sus palabras qué significa ‘responsabilidad personal en un sistema injusto’. ¿Qué puede y qué no puede hacer una persona frente a estructuras que no controla?”
+"Explique con sus palabras qué significa 'responsabilidad personal en un sistema injusto'. ¿Qué puede y qué no puede hacer una persona frente a estructuras que no controla?"
 
 Estanislao la miró un segundo más de lo necesario.
 
@@ -1934,37 +1948,55 @@ Era un primer peldaño.
 
 Y eso, en un país lleno de ascensores rotos y escaleras clausuradas, era casi un milagro.
 # **<a name="_toc215679766"></a>Capítulo 9 – \*\*\* Los Que Cuidan Demasiado \*\*\***
-El taller quedaba a veinte minutos en colectivo, en una zona rara: ni barrio pobre ni centro elegante. Galpones prolijos, murales, algunas startups con nombres en inglés mal pronunciados.
+El taller quedaba a veinte minutos en colectivo, en una zona rara: ni barrio pobre ni centro elegante. Galpones prolijos, murales con colores que parecían de otro país, algunas startups con nombres en inglés mal pronunciados.
 
-El cartel decía:
+Estanislao había tomado el 148 a las siete de la mañana, cuando el colectivo todavía iba medio vacío. Miró por la ventana cómo el paisaje cambiaba: primero las casitas bajas del barrio, después los edificios grises del centro, después esa zona intermedia donde convivían fábricas viejas con talleres nuevos, como si la ciudad no supiera bien qué hacer con ese pedazo.
 
-“TALLER GRIETA – METAL, MADERA Y LOCURAS.\
-(BUSCAMOS GENTE CON GANAS DE APRENDER).”
+Bajó en una parada que no tenía nombre, solo un poste oxidado. El aire olía a serrín, a pintura, a algo que se estaba construyendo.
 
-Estanislao había visto el anuncio en La Escalera. Julián lo había arrancado de un poste y pegado en la cartelera, con una flecha al costado:
+El cartel del taller estaba pintado a mano, con letras desparejas pero firmes:
 
-“Acá necesitan gente. No primos. No amigos. Gente.”
+"TALLER GRIETA – METAL, MADERA Y LOCURAS.\
+(BUSCAMOS GENTE CON GANAS DE APRENDER)."
 
-Golpeó la puerta de chapa. Le abrió un hombre de unos cuarenta y pico, delgado, con barba desprolija y ojos cansados pero vivos. Tenía las manos marcadas por el trabajo.
+Debajo, alguien había agregado con marcador: "Y con resistencia a la frustración."
 
-—¿Qué buscás? —preguntó, directo.
+Estanislao sonrió. Le gustaba que fueran honestos.
 
-—Vi el papel… lo del taller. Buscan gente —dijo Estanislao, mostrándole el anuncio arrugado.
+Había visto el anuncio en La Escalera. Julián lo había arrancado de un poste y pegado en la cartelera, con una flecha dibujada al costado y una nota escrita con su letra desprolija:
 
-El hombre lo miró unos segundos, como evaluando si se iba a arrepentir de lo que estaba por hacer.
+"Acá necesitan gente. No primos. No amigos. Gente que quiera laburar de verdad."
 
-—Pasá —dijo al fin.
+Golpeó la puerta de chapa. El sonido metálico resonó en el silencio de la mañana. Por un momento pensó que no había nadie.
+
+Pero entonces se escucharon pasos, una tos, y la puerta se abrió con un chirrido.
+
+Le abrió un hombre de unos cuarenta y pico, delgado, con barba desprolija y ojos cansados pero vivos. Tenía las manos marcadas por el trabajo: cicatrices pequeñas, callos, un dedo un poco torcido como si se lo hubiera roto hace tiempo y nunca hubiera sanado del todo. Llevaba una remera manchada de pintura y un delantal de cuero que había visto mejores días.
+
+—¿Qué buscás? —preguntó, directo. No había cortesía de más, pero tampoco hostilidad. Solo la eficiencia de alguien que tiene cosas que hacer.
+
+—Vi el papel… lo del taller. Buscan gente —dijo Estanislao, mostrándole el anuncio arrugado que había guardado en el bolsillo durante una semana, dudando si venir o no.
+
+El hombre lo miró unos segundos. Tenía esa mirada de los que evalúan rápido, de los que han visto pasar muchos pibes con buenas intenciones y malos hábitos. Como si estuviera calculando si Estanislao iba a durar una semana o un año.
+
+—Pasá —dijo al fin, haciéndose a un lado.
 
 \---
 
-Adentro, el taller era un caos ordenado: máquinas, bancos de trabajo, tablas, piezas de metal, prototipos de muebles, algo que parecía una bicicleta rara colgando del techo.
+Adentro, el taller era un caos ordenado. O un orden caótico, dependiendo de cómo lo miraras.
 
-—Soy Mauro —se presentó—. Antes laburaba en una metalúrgica grande. Un día me cansé de que los jefes me traten como si fuera parte de la máquina y me vine a armar esto.\
-No es mucho, pero es mío. O lo intento.
+Máquinas de todos los tamaños ocupaban el espacio: una sierra de banco con la hoja brillante, una soldadora con la máscara colgada al costado, un torno que parecía de otra época pero funcionaba perfecto. En los bancos de trabajo había tablas a medio cortar, piezas de metal con formas raras, prototipos de muebles que no se parecían a nada que Estanislao hubiera visto en los negocios del centro. Del techo colgaba algo que parecía una bicicleta, pero con tres ruedas y un canasto gigante adelante.
 
-Estanislao miraba fascinado. No era una fábrica gigante, pero se notaba que ahí salían cosas reales.
+El olor era una mezcla de aserrín, metal caliente, pegamento industrial y café viejo. A Estanislao le pareció el olor de las cosas que se hacen con las manos.
 
-—¿Y qué haría yo acá? —preguntó.
+—Soy Mauro —se presentó el hombre, cerrando la puerta detrás de él—. Antes laburaba en una metalúrgica grande, de esas donde hay trescientos empleados y el dueño nunca te ve la cara. Un día me cansé de que los jefes me traten como si fuera parte de la máquina, como si mis ideas no valieran nada, como si llevar veinte años haciendo lo mismo me hiciera menos que el pibe recién recibido del contador. Y me vine a armar esto.
+
+Señaló el taller con un gesto amplio, casi orgulloso.
+
+—No es mucho —admitió—, pero es mío. O lo intento. El Estado me cobra como si fuera Apple, pero bueno, así es la cosa.
+
+Estanislao miraba fascinado. No era una fábrica gigante, no tenía vidrios espejados ni recepcionistas con sonrisas falsas, pero se notaba que ahí salían cosas reales. Cosas que alguien había pensado, diseñado, construido con sus propias manos.
+
 
 Mauro se encogió de hombros.
 
