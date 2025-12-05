@@ -2221,18 +2221,23 @@ Estaba tanteando otro tipo de vida: dura, incierta, pero **sin disfraz de pobrec
 
 Y aunque el país siguiera llamándose a sí mismo víctima del mundo, Estanislao decidió que, al menos, **él** no iba a repetirlo de memoria.
 # **<a name="_toc215679767"></a>Capítulo 10 – \*\*\* Cansancio de No Ser Pobrecito \*\*\***
-El taller olía distinto.
+El taller olía distinto esa mañana de marzo.
 
-Antes era serrín, metal y café recalentado. Ahora, además, había un perfume nuevo: el de la pintura fresca en una pila de cajas prolijas, todas con el mismo logo azul.
+El verano todavía se resistía a irse, y el aire entraba caliente por las ventanas altas del galpón, mezclado con el ruido de los camiones que pasaban por la avenida y el chirrido de las chicharras escondidas entre los pastos del baldío de al lado. En la radio vieja que Mauro tenía colgada de un clavo, un locutor hablaba de inflación y ajustes, pero el volumen estaba tan bajo que las palabras se perdían entre el zumbido del ventilador industrial.
 
-**“INDUSTRIAS RÍOS – HECHO EN SAN AURELIO.”**
+Antes era serrín, metal y café recalentado en la hornalla que Mauro nunca apagaba. Ahora, además, había un perfume nuevo: el de la pintura fresca aplicada con prolijidad sobre una pila de cajas de cartón grueso, todas con el mismo logo azul brillante.
 
-Mauro las miraba como quien mira a un hijo recién nacido que no sabe si va a sobrevivir.
+**"INDUSTRIAS RÍOS – HECHO EN SAN AURELIO."**
 
-—Lo conseguimos —dijo, sin exagerar en el tono, pero con los ojos brillantes—. Ríos nos dio la chance de hacerles repuestos. Piezas chicas, serie corta. Si sale bien, hay más. Si sale mal, volvemos a las mesas de siempre y a los arreglos de barrio.
+Estanislao se había levantado temprano, cuando el barrio todavía dormía y solo ladraban los perros callejeros que buscaban comida en las bolsas de basura de la vereda. Había caminado las veinte cuadras hasta el taller porque la moto del vecino estaba pinchada, y cada paso le había hecho pensar en lo raro que era esto: tener un lugar donde ir, una tarea que hacer, alguien que lo esperara. Se acordaba de cuando su único horizonte era el comedor comunitario, la cola del plan, el kiosco de Yoli para ver qué changas había.
 
-Estanislao pasó la mano por una de las cajas.
+Mauro ya estaba ahí, con la remera manchada de grasa vieja y los ojos pegados a las cajas como quien mira a un hijo recién nacido que no sabe si va a sobrevivir. Tenía un cigarrillo apagado en la boca —había dejado de fumar tres meses atrás, pero todavía masticaba los filtros cuando estaba nervioso— y las manos quietas a los costados, cosa rara en él.
 
+El galpón estaba en silencio. Las máquinas todavía no arrancaban, y la luz del sol entraba por las claraboyas del techo formando rectángulos dorados sobre el piso de cemento gris. Olía a aceite de máquina, a soldadura del día anterior, y a ese café eterno que Mauro preparaba en una cafetera italiana abollada.
+
+—Lo conseguimos —dijo al fin, sin exagerar en el tono, pero con una luz rara en los ojos que Estanislao había visto pocas veces—. Ríos nos dio la chance de hacerles repuestos. Piezas chicas, serie corta. Si sale bien, hay más trabajo, y capaz hasta podemos contratar a alguien. Si sale mal... bueno, volvemos a las mesas de siempre y a los arreglos del barrio.
+
+Estanislao pasó la mano por una de las cajas. La pintura estaba seca pero todavía guardaba un brillo húmedo, como si también ella estuviera nerviosa. Sintió la textura del cartón grueso, el peso de lo que representaba.
 —¿Ríos? —preguntó—. ¿No son los que salen en la tele diciendo que el país los tiene asfixiados?
 
 Mauro se rió por lo bajo.
@@ -2453,25 +2458,35 @@ la que uno se cuenta para no esforzarse.
 # **<a name="_toc215679768"></a>Capítulo 11 – \*\*\* Pobrecitos los Gigantes \*\*\***
 Las cajas con el logo azul dejaron de llegar de un día para el otro.
 
-Hasta ayer, el taller parecía un hormiguero ordenado: Mauro y Estanislao moviéndose entre piezas, listas, medidas, plazos. Hoy, el espacio donde se apilaban los pedidos de Industrias Ríos estaba vacío, como si alguien hubiera borrado una parte del paisaje con una goma gigante.
+Era un miércoles de otoño, de esos días grises donde el cielo parece una sábana sucia y el viento trae olor a quemado desde las fábricas del otro lado de la ruta. Estanislao llegó al taller a las siete y media, como siempre, con el frío metiéndose por los agujeros de la campera y un café con leche en la panza del bar de Norma que le había costado casi un cuarto del jornal.
 
-Mauro revisaba compulsivamente el celular.
+Hasta ayer, el taller parecía un hormiguero ordenado: Mauro y Estanislao moviéndose entre piezas, listas, medidas, plazos. El ruido de la amoladora, el chisporroteo de la soldadora, el olor del metal caliente que se mezclaba con el café viejo. Hoy, el espacio donde se apilaban los pedidos de Industrias Ríos estaba vacío, como si alguien hubiera borrado una parte del paisaje con una goma gigante. Los estantes metálicos, antes cargados de cajas con el logo azul brillante, ahora mostraban solo polvo y algunas herramientas olvidadas.
 
-—Capaz es un retraso —dijo, sin mucha convicción—. O están rearmando la línea de producción. Estas empresas grandes son así, tardan en avisar.
+Mauro estaba sentado en el banco de madera gastada, con el celular en la mano y la mirada perdida. Tenía la remera del día anterior —Estanislao la reconoció por la mancha de grasa cerca del cuello— y ojeras profundas, como si no hubiera dormido.
 
-Estanislao acomodaba herramientas solo para tener algo que hacer.
+—¿Qué pasó? —preguntó Estanislao, aunque ya intuía la respuesta.
+
+Mauro no levantó la vista.
+
+—Capaz es un retraso —dijo, sin mucha convicción, más para sí mismo que para el pibe—. O están rearmando la línea de producción. Estas empresas grandes son así, tardan en avisar. Capaz mañana llegan dos camiones juntos y nos volvemos locos.
+
+Pero su voz sonaba hueca, como una lata vacía.
+
+Estanislao acomodaba herramientas solo para tener algo que hacer. La llave inglesa, los destornilladores, las pinzas. Todo en su lugar, como si ordenando el espacio pudiera ordenar lo que estaba pasando.
 
 —¿Llamaste al contacto? —preguntó.
 
-—Le mandé tres mensajes —respondió Mauro—. Los leyó. No contestó.
+Mauro se pasó la mano por la cara, dejando una marca de grasa en la frente sin darse cuenta.
 
-Eso, en el idioma de los negocios, ya era una respuesta.
+—Le mandé tres mensajes —respondió—. Los leyó. No contestó. Después lo llamé y me mandó al buzón de voz.
+
+Eso, en el idioma de los negocios, ya era una respuesta. El silencio que habla más que las palabras.
 
 \---
 
-La noticia llegó por la tele del bar de la esquina.
+La noticia llegó por la tele del bar de la esquina, el de Cacho, ese que tenía las paredes amarillentas de nicotina y un televisor viejo colgado de un soporte oxidado.
 
-Mientras Mauro y Estani se comían un sánguche barato, el noticiero cortó la programación para mostrar al dueño de Industrias Ríos frente a las cámaras, con gesto grave, rodeado de empleados con pecheras de la empresa.
+Mientras Mauro y Estani se comían un sánguche de milanesa barato —el pan duro, la carne finita como una hostia, pero el hambre no distingue— el noticiero cortó la programación para mostrar al dueño de Industrias Ríos frente a las cámaras, con gesto grave, traje oscuro impecable y rodeado de empleados con pecheras de la empresa. Detrás de él, una planta fabril con máquinas paradas y banderas argentinas.
 
 El zócalo decía:
 
@@ -2700,34 +2715,44 @@ Pero por primera vez, empezó a sospechar que la verdadera riqueza de un país n
 
 Y que, si había un lugar donde valía la pena cansarse, era ahí.
 # **<a name="_toc215679769"></a>Capítulo 12 – \*\*\* Pobrecitos con Corbata \*\*\***
-El taller llevaba una semana de ideas y poco trabajo cuando Mauro levantó la vista del teléfono con cara de “esto no lo vas a creer”.
+El taller llevaba una semana de ideas y poco trabajo cuando Mauro levantó la vista del teléfono con cara de "esto no lo vas a creer".
 
-—¿Te acordás del contacto de Ríos? —preguntó.
+Afuera llovía con furia, una de esas lluvias de abril que inundan las calles en minutos y dejan al barrio oliendo a barro y desagüe. El agua golpeaba el techo de chapa como tambores desafinados, y Estanislao miraba las goteras caer en los baldes estratégicamente ubicados por todo el galpón. Mauro tenía la computadora abierta en una hoja de cálculo llena de números rojos, los anteojos puestos —esos que solo usaba cuando las cosas estaban jodidas— y la taza de café fría desde hacía horas.
 
-—¿El que te dejó en visto? —respondió Estanislao.
+—¿Te acordás del contacto de Ríos? —preguntó Mauro, sin levantar la vista del teléfono.
 
-—Ese mismo —dijo Mauro—. Me acaba de escribir.
+—¿El que te dejó en visto tres veces y después te mandó al buzón? —respondió Estanislao, con un dejo de amargura.
 
-Le mostró la pantalla. El mensaje decía:
+—Ese mismo —dijo Mauro, y ahora sí lo miró, con una mezcla de curiosidad y desconfianza—. Me acaba de escribir.
 
-“Mauro, ¿cómo va?\
-Te aviso que estamos armando una nueva estructura de proveedores para la ‘nueva etapa’ de la empresa.\
+Le mostró la pantalla del celular viejo, con la pantalla rajada de una caída que nunca había reparado. El mensaje decía:
+
+"Mauro, ¿cómo va?\
+Te aviso que estamos armando una nueva estructura de proveedores para la 'nueva etapa' de la empresa.\
 Capaz podemos hacer algo. Tengo unos amigos que se están quedando con parte de la línea de repuestos. Si querés, juntémonos a charlar.\
-Abrazo, F.”
+Abrazo, F."
 
-—¿No estaban al borde del cierre? —murmuró Estani.
+—¿No estaban al borde del cierre? —murmuró Estani, sintiendo cómo se le tensaba el estómago—. ¿No salieron en la tele llorando que el Estado los abandonaba?
 
-Mauro sonrió sin humor.
+Mauro sonrió sin humor, una de esas sonrisas que son más bien muecas.
 
-—Parece que el abismo tenía colchón —dijo.
+—Parece que el abismo tenía colchón —dijo—. Y el colchón lo pagamos nosotros con los impuestos.
+
+Guardó el teléfono en el bolsillo y se quedó mirando la lluvia que caía por la ventana sucia.
+
+—¿Vas a ir? —preguntó Estanislao.
+
+—Voy a ir a escuchar —respondió Mauro—. Pero llevame con vos. Quiero que veas cómo operan estos tipos. Es parte de tu educación.
 
 \---
 
-Se encontraron en un café del centro, de esos con sillas incómodas pero caras, donde el café viene con dibujito y nombre extranjero.
+Se encontraron en un café del centro, de esos con sillas incómodas pero caras, donde el café viene con dibujito en la espuma y nombre extranjero que nadie sabe pronunciar. "Macchiato doppio", "flat white", "pour over". Las paredes estaban cubiertas de fotos en blanco y negro de gente linda tomando café en otras partes del mundo.
 
-Federico —el “F” del mensaje— llegó tarde, con saco sin corbata, reloj caro y sonrisa de catálogo. Tenía aire de tipo ocupado que estaba haciendo un favor al mundo con su presencia.
+Estanislao entró con su campera vieja y las zapatillas gastadas, y sintió las miradas de los otros clientes —chicas con notebooks, tipos de traje hablando por teléfono, una pareja que comía tostadas de palta a treinta dólares el plato—. Quiso desaparecer. Se sentó en una esquina y pidió agua porque el café más barato costaba lo que él ganaba en medio día.
 
-—¡Mauro! —saludó, abrazándolo como si fueran viejos amigos—. Qué bueno verte, che. Perdón la demora, esto está siendo una locura.
+Federico —el "F" del mensaje— llegó quince minutos tarde, con saco azul sin corbata, reloj caro que brillaba bajo la luz led, y sonrisa de catálogo publicitario. Tenía el pelo engominado hacia atrás, bronceado artificial, y ese aire de tipo ocupado que estaba haciendo un favor al mundo con su presencia. Olía a perfume caro, de esos que hacen estornudar.
+
+—¡Mauro! —saludó, abrazándolo como si fueran viejos amigos de toda la vida y no un proveedor que había dejado colgado—. Qué bueno verte, che. Perdón la demora, esto está siendo una locura. No te imaginás las reuniones que tenemos todos los días. El tema de la reestructuración nos tiene a todos de la cabeza.
 
 Se sentaron. Estanislao se quedó un poco atrás, en silencio.
 
