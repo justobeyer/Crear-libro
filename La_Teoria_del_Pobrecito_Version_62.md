@@ -3796,14 +3796,23 @@ Y algo, cada vez más fuerte, le decía que prefería arriesgarse a perder como 
 # **<a name="_toc215679773"></a>Capítulo 16 – \*\*\* Dos Deudas \*\*\***
 La semana después de la visita del gremio y del auto negro fue una cuerda floja.
 
-Mauro hacía números todo el tiempo: papeles, cuotas, impuestos, costos de cascos y extintores.\
-Estanislao hacía fuerza para que las piezas salieran bien, mientras La Escalera y el cuaderno le comían las noches.
+Julio se había instalado con su frío seco y sus atardeceres grises que parecían tragarse la luz antes de tiempo. Las calles del barrio olían a humo de quema de basura —alguien siempre prendía fuego algo en los baldíos— y a guiso recalentado que salía por las ventanas entornadas.
 
-Una mañana, mientras ajustaban la estructura para la verdulería del barrio vecino, Mauro dijo:
+Estanislao caminaba al taller con las manos metidas en los bolsillos del buzo, el cuello de la campera levantado contra el viento que bajaba desde la avenida trayendo olor a diesel y a pan recién hecho de la panadería del paraguayo.
+
+Mauro hacía números todo el tiempo: papeles arrugados con cálculos a lápiz, cuotas marcadas en un calendario de almacén del año anterior, impuestos que no bajaban nunca, costos de cascos homologados y extintores nuevos que les habían exigido.
+
+El taller estaba silencioso esa mañana. Solo se escuchaba el zumbido del tubo fluorescente del fondo —que parpadeaba cada tanto como si tosiera— y el goteo persistente de una canilla que nunca cerraba del todo.
+
+Estanislao hacía fuerza para que las piezas salieran bien, mientras La Escalera y el cuaderno le comían las noches. Había empezado a soñar con las clases de Julián: palabras que se mezclaban con imágenes del auto negro, de la cara del inspector, de la sonrisa del Jefe.
+
+Una mañana, mientras ajustaban la estructura para la verdulería del barrio vecino —un armazón de caños y soldaduras que debía aguantar cajones de fruta y el peso de un toldo de lona—, Mauro dijo:
 
 —Si cobramos esto en fecha, pagamos el extintor, el alquiler y media cuota de la luz.\
 Si encima conseguimos dos laburos más como éste, zafamos del mes.\
 No es un gran plan, pero al menos es un plan.
+
+Tenía grasa en las manos y un cigarrillo apagado colgando del labio —había dejado de fumar hacía dos años pero seguía masticando los filtros cuando estaba nervioso—.
 
 Estanislao asintió, concentrado en la soldadura.
 
@@ -3811,7 +3820,9 @@ Por primera vez en mucho tiempo, tenían algo que se parecía a una base mínima
 
 \---
 
-Al anochecer, cuando Estani bajaba el portón del taller, apareció una moto que conocía demasiado bien.
+Al anochecer, cuando Estani bajaba el portón del taller —el chirrido del metal contra el riel era un sonido que ya reconocía con los ojos cerrados—, apareció una moto que conocía demasiado bien.
+
+El cielo estaba rayado de naranja sucio por el lado del río y de violeta oscuro por el lado del centro. Los faroles de la cuadra se encendían de a uno, con ese zumbido eléctrico de los tubos viejos. Un perro ladraba en algún patio cercano, monótono, como si ladrara por costumbre.
 
 No era la del municipio.\
 Moto liviana, escape ruidoso, dos ocupantes: uno manejando, el otro con capucha y la cara apenas visible.
@@ -3834,9 +3845,9 @@ Estanislao miró hacia el fondo del taller. Mauro estaba guardando herramientas,
 
 \---
 
-El auto negro lo esperaba dos cuadras más allá, en una calle lateral casi sin luz.
+El auto negro lo esperaba dos cuadras más allá, en una calle lateral casi sin luz. Un poste de alumbrado parpabeaba enfermo, proyectando sombras que bailaban sobre el asfalto roto.
 
-Por fuera, el mismo de siempre. Por dentro, el clima era otro.
+Por fuera, el mismo de siempre: vidrios polarizados, chapa impecable, motor que ronroneaba bajo. Por dentro, el clima era otro.
 
 El hombre de barba prolija no sonreía.
 
@@ -3914,9 +3925,11 @@ Pero bueno: una ruta.
 
 La entrega, en sí, no fue espectacular.
 
+Noche sin luna, calles de tierra que se volvían barro con el rocío de la madrugada. El olor era a humedad, a pastizal y a algo químico que Estanislao prefirió no identificar.
+
 Bolsa común, caja adentro. Dirección clara.\
 Timbre, puerta entreabierta, mano que saca, billetes que entran.\
-Nada de persecuciones, nada de película. Solo un trámite oscuro.
+Nada de persecuciones, nada de película. Solo un trámite oscuro en una casa con rejas oxidadas y un jardín donde crecían yuyos entre escombros.
 
 Al volver al auto, el Jefe contó la plata rápido, casi sin mirarla, y la pasó a una bolsita negra con cierre.
 
@@ -3940,9 +3953,9 @@ No seas el único orgulloso.
 
 \---
 
-Volvió al taller con el cuerpo tenso.
+Volvió al taller con el cuerpo tenso, los hombros duros como si cargara algo invisible. El frío de la noche se le había metido en los huesos y no salía.
 
-Mauro estaba guardando cosas en silencio, con la radio encendida bajito.
+Mauro estaba guardando cosas en silencio, con la radio encendida bajito —un programa de tangos que ponían a esa hora, voces de otro siglo hablando de amores perdidos y esquinas que ya no existían—.
 
 —Te fuiste de golpe —dijo—. ¿Pasó algo?
 
@@ -3983,7 +3996,9 @@ La diferencia es qué hacés con ese miedo.
 
 Al día siguiente, el verdulero vino a probar la estructura.
 
-Colgó bolsas, subió cajones, golpeó los caños con el puño.
+Era un tipo morocho de unos cincuenta años, con manos grandes y agrietadas de cargar cajones desde antes del amanecer. Tenía una remera del sindicato de trabajadores rurales —aunque nunca había trabajado en el campo— y una sonrisa de dientes desparejos que le iluminaba la cara.
+
+Colgó bolsas, subió cajones, golpeó los caños con el puño cerrado. El metal respondió con un sonido sólido, confiable.
 
 —Es un tanque, maestro —dijo—. Me aguanta todo. Y encima menos caro que los otros.
 
@@ -4077,14 +4092,16 @@ Eligió intentar uno nuevo.
 
 Empezó a escribir.
 # **<a name="_toc215679774"></a>Capítulo 17 – \*\*\* Mal Ejemplo \*\*\***
-El taller jamás había estado tan “correcto”.
+El taller jamás había estado tan "correcto".
 
-Carteles de seguridad en cada pared, extintor nuevo colgando, cascos y gafas alineados, un plano de evacuación dibujado prolijo con fibrón azul.\
-Vista rápida: parecía un lugar que “hacía las cosas bien”.
+Agosto había llegado con un frío que pelaba la cara y un viento del sur que se metía por las rendijas del portón. El sol entraba oblicuo por las claraboyas, dibujando rectángulos de luz amarillenta sobre el piso de cemento manchado de aceite viejo.
+
+Carteles de seguridad en cada pared —letras negras sobre fondo amarillo—, extintor nuevo colgando de su soporte reglamentario, cascos y gafas alineados en un estante que Mauro había armado con restos de caños, un plano de evacuación dibujado prolijo con fibrón azul.\
+Vista rápida: parecía un lugar que "hacía las cosas bien".
 
 Vista lenta: era un lugar que **apenas respiraba**.
 
-Mauro barrió por tercera vez el mismo sector, como si quisiera convencer al universo de que el orden visible compensaría el caos de las cuentas.
+Mauro barrió por tercera vez el mismo sector, como si quisiera convencer al universo de que el orden visible compensaría el caos de las cuentas. El escobillón raspaba el piso con un sonido seco, monótono.
 
 —Si mi viejo viera esto —dijo—, se reiría.\
 Cuarenta años en una fábrica sin casco, sin cartel, sin flauta. Y acá estamos, endeudados por cumplir las reglas de seguridad.
@@ -4103,7 +4120,11 @@ Mauro apretó los labios.
 
 \---
 
-En el televisor viejo del bar de la esquina, la escena parecía un acto de escuela caro.
+En el televisor viejo del bar de la esquina —un tubo gordo de los noventa que Cacho se negaba a cambiar porque "estos aguantan todo"—, la escena parecía un acto de escuela caro.
+
+El bar olía a café recalentado, a milanesas del mediodía que seguían en la plancha y a cigarrillo aunque estaba prohibido fumar adentro. Las paredes tenían ese amarillo de nicotina de décadas, con fotos de jugadores de fútbol que ya nadie recordaba.
+
+Mauro y Estanislao miraban desde una mesa del fondo, con dos cortados que se enfriaban en las tazas.
 
 En el escenario:
 
@@ -4373,13 +4394,17 @@ Pero presentía que, si el sistema no podía comprar a Mauro… iba a intentar *
 
 Y que, de un modo u otro, lo iban a volver a buscar a él.
 # **<a name="_toc215679775"></a>Capítulo 18 – \*\*\* Lección para el Barrio \*\*\***
-La semana siguiente al “Pacto por los que menos tienen” fue una colección de pequeños sustos.
+La semana siguiente al "Pacto por los que menos tienen" fue una colección de pequeños sustos.
 
-- Un vecino comentó que había visto a un inspector de civil sacando fotos desde la esquina.
-- Omar, el del gremio, pasó dos veces por delante del taller sin entrar, pero anotando algo en el celular.
-- El auto negro empezó a pasar más seguido, despacio, como tomando medida de la cuadra.
+Septiembre había llegado con ese calor húmedo que anticipa la primavera y el viento norte que traía olor a quema desde los campos del otro lado del río. Las noches eran inquietas, llenas de mosquitos y de perros que ladraban a sombras que nadie más veía.
 
-Mauro lo veía todo, como quien lleva la cuenta de tormentas.
+Estanislao dormía mal. Se despertaba a las tres de la mañana con el corazón acelerado, escuchando ruidos que podían ser el viento contra las chapas o algo más. El cuaderno estaba siempre en la mesita de luz, abierto en la página donde había empezado a escribir lo que llamaba "El Mapa".
+
+- Un vecino comentó que había visto a un inspector de civil sacando fotos desde la esquina —un tipo de camisa celeste y pantalón de vestir que desentonaba con el barrio—.
+- Omar, el del gremio, pasó dos veces por delante del taller sin entrar, pero anotando algo en el celular con gesto de contador que suma deudas ajenas.
+- El auto negro empezó a pasar más seguido, despacio, como tomando medida de la cuadra —el ronroneo del motor se había vuelto un sonido reconocible—.
+
+Mauro lo veía todo, como quien lleva la cuenta de tormentas. Tenía los ojos más hundidos que antes, la barba más descuidada.
 
 —Nos están tanteando —dijo una tarde—. No necesitan apurarse. El tiempo juega para ellos.
 
@@ -4388,16 +4413,21 @@ Pero el zumbido de fondo era siempre el mismo: **aprietan de arriba, ofrecen de 
 
 \---
 
-Una noche, ya con el taller casi cerrado, se escuchó el motor conocido.\
-No de moto.\
-Del auto negro.
+Una noche, ya con el taller casi cerrado —el sol se había hundido detrás de los edificios del centro dejando un cielo violeta que se volvía negro por los bordes—, se escuchó el motor conocido.
+
+El aire olía a humedad, a jazmín del patio de alguna vecina y a la grasa caliente de alguna fritura tardía. Los grillos habían empezado su coro nocturno, interrumpidos solo por el ladrido ocasional de los perros.
+
+No era de moto.\
+Era del auto negro.
 
 Esta vez no se quedaron en la vereda.
 
 El coche entró a la cuadra, frenó frente al taller y se subió apenas a la vereda, ocupando medio paso. La puerta delantera se abrió lentamente.
 
-El Jefe bajó sin apuro, camisa clara, camperita, zapatillas prolijas.\
-Atrás, en el asiento, Estanislao alcanzó a ver a dos siluetas más. No se movían.
+El Jefe bajó sin apuro, camisa clara abierta en el cuello, camperita de cuero que seguro costaba más que todo el inventario del taller, zapatillas prolijas de marca importada. Tenía ese aire de quien no necesita apurarse porque el mundo lo espera.\
+Atrás, en el asiento, Estanislao alcanzó a ver a dos siluetas más. No se movían —parecían esculturas de piedra, caras sin expresión, manos sobre las rodillas—.
+
+El olor a colonia cara llegó antes que él, mezclándose con el olor a metal y a aceite del taller.
 
 —Mauro —saludó el Jefe, como si fuera cliente viejo—.\
 Tenemos que hablar de negocios.
@@ -4522,9 +4552,11 @@ Eso era casi peor.
 
 La noche del tercero, el barrio se llenó de ruido sin aviso.
 
-Frenada brusca.\
-Gritos cortos.\
-Un estampido seco, distinto al de los fuegos artificiales.
+Era una de esas noches sin luna donde las estrellas se perdían detrás del resplandor naranja de la ciudad. El aire estaba quieto, pesado, con ese silencio tenso que a veces precede a las tormentas de verano aunque fuera invierno.
+
+Frenada brusca —el chirrido de gomas sobre asfalto roto—.\
+Gritos cortos —voces de hombre que se superponían—.\
+Un estampido seco, distinto al de los fuegos artificiales —más grave, más definitivo—.
 
 Estanislao estaba volviendo de La Escalera, cuaderno en la mochila, cuando escuchó los gritos.
 
