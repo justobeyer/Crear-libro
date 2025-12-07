@@ -4744,22 +4744,29 @@ Agarró la manija.
 
 Y subió.
 # **<a name="_toc215679776"></a>Capítulo 19 – \*\*\* El Mapa del Monstruo \*\*\***
+
+Era una noche de octubre sin luna, con olor a jazmín mezclado con el humo de las parrillas de los carros de choripanes. El cielo tenía ese violeta denso de las noches de primavera temprana, cuando el calor empieza a avisar que viene pero todavía no llega del todo.
+
 El auto negro avanzaba despacio por calles que Estanislao conocía de memoria.
 
+Las luces de sodio de los faroles pintaban todo de un amarillo enfermo. Pasaron por la panadería de don Jorge (cerrada desde marzo), por la plaza del barrio (tres borrachos durmiendo en los bancos), por la esquina donde Mauro solía estacionar la camioneta.
+
 Lo que cambiaba no eran las veredas, sino la manera en que el Jefe se las iba señalando.
+
+El asiento de cuero del auto olía a tabaco viejo y a colonia cara. El aire acondicionado soplaba suave, un contraste brutal con el calor pegajoso de afuera. Por la ventanilla, Estanislao veía pasar su mundo como si lo viera desde una nave espacial.
 
 —Hasta ahora viste pedacitos —dijo, con el codo en la ventanilla—.\
 El comedor, el taller, el sindicato, la muni, el barrio.\
 Hoy te voy a mostrar cómo se conectan. Para que entiendas bien de qué hablás cuando escribís “Teoría del Pobrecito”.
 
-Dobló hacia la avenida principal.
+Dobló hacia la avenida principal. El pavimento cambió: acá no había pozos, las líneas estaban pintadas, los semáforos funcionaban.
 
 —Primera parada: **el municipio**.
 
 \---
 
-La municipalidad de San Aurelio era una mole gris con columnas ambiciosas y vidrios espejados.\
-Gente entrando y saliendo con carpetas, otros apoyados en la reja, vendedores ambulantes en la vereda.
+La municipalidad de San Aurelio era una mole gris con columnas ambiciosas y vidrios espejados que reflejaban las luces de neón de los locales de enfrente.\
+Gente entrando y saliendo con carpetas, otros apoyados en la reja fumando, vendedores ambulantes en la vereda ofreciendo café con leche y medialunas. El olor a humedad del río llegaba mezclado con el escape de los colectivos que pasaban cada cinco minutos.
 
 El auto no se detuvo; apenas bajó la velocidad.
 
@@ -5054,21 +5061,26 @@ los mismos “no” de siempre disfrazados de protección.
 
 —Si este tiro sirve para que alguien más se anime a escribir sin pedir permiso de clase media ni de alta —añadió—, algo habrá valido.
 # **<a name="_toc215679777"></a>Capítulo 20 – \*\*\* La Última Versión \*\*\***
-Pasaron semanas.
 
-El taller de Mauro fue vaciado, vendido, olvidado. El cartel que decía "HERRERÍA Y CARPINTERÍA - TRABAJO HONESTO" desapareció una noche. Nadie preguntó quién lo sacó.
+Pasaron semanas. Noviembre entró con calor de horno y tormentas que no llegaban nunca: el cielo se ponía negro, caían dos gotas, y después volvía el sol a freír todo.
 
-Estanislao seguía yendo a La Escalera, pero ahora con otro propósito. Ya no era solo para aprender. Era para procesar.
+El taller de Mauro fue vaciado, vendido, olvidado. El cartel que decía "HERRERÍA Y CARPINTERÍA - TRABAJO HONESTO" desapareció una noche. Nadie preguntó quién lo sacó. Estanislao pasó por ahí una mañana y vio el galpón vacío, las paredes con manchas de humedad donde antes colgaban las herramientas, el piso de cemento lleno de polvo y colillas de cigarrillo de los que habían venido a curiosear.
+
+El olor a metal caliente, a serrín, a café eterno ya no estaba. Solo quedaba el eco de lo que había sido.
+
+Estanislao seguía yendo a La Escalera, pero ahora con otro propósito. Ya no era solo para aprender. Era para procesar. Caminaba las diez cuadras desde su casa con el cuaderno en la mochila, sintiendo el peso de todo lo que había visto en los últimos meses.
 
 —Tenés que escribir —le dijo Lucas una tarde, mientras cebaba mate en el patio de la casa comunitaria—. Todo lo que sabés, todo lo que viste. Si no lo escribís, se pierde.
+
+El patio tenía paredes descascaradas pintadas de celeste, un limonero flaco en la esquina, y sillas de plástico desparejadas. El sol de la tardecita entraba oblicuo, pintando rectángulos de luz dorada en el piso de mosaicos rotos.
 
 —¿Para qué? ¿Quién va a leerlo?
 
 —No sé. Pero peor es que no exista.
 
-Estanislao empezó esa misma noche.
+Estanislao empezó esa misma noche, en su pieza de siempre: colchón hundido, ventilador que chirriaba, olor a kerosén de la estufa de la abuela que se filtraba por debajo de la puerta.
 
-Escribía en el cuaderno de siempre, el de tapa dura que le había regalado la abuela. Pero ahora las anotaciones sueltas empezaban a conectarse. Las frases que había escuchado de Julián, las conversaciones con Mauro, las explicaciones del Jefe. Todo formaba parte de un mismo dibujo.
+Escribía en el cuaderno de siempre, el de tapa dura que le había regalado la abuela hacía tres años, para que anotara "las cosas importantes". Pero ahora las anotaciones sueltas empezaban a conectarse. Las frases que había escuchado de Julián, las conversaciones con Mauro, las explicaciones del Jefe. Todo formaba parte de un mismo dibujo.
 
 El título llegó solo: **"La Teoría del Pobrecito"**.
 
@@ -5092,15 +5104,15 @@ Lucas lo leyó primero. Después, algunos de La Escalera. Después, empezaron a 
 
 —Entonces que circule. Sin nombre. Que sea de todos.
 
-Imprimieron las primeras copias en una copistería vieja del centro, con tapa de cartón reciclado. Cien ejemplares. Costó la plata de tres meses de changas.
+Imprimieron las primeras copias en una copistería vieja del centro, con máquinas que hacían un ruido de batalla y un dueño de bigote gris que no preguntó nada. Tapa de cartón reciclado, páginas que olían a tinta fresca y a papel barato. Cien ejemplares. Costó la plata de tres meses de changas.
 
-Los dejaron en bares, en colectivos, en salas de espera. Algunos aparecieron en universidades. Otros, en sindicatos. Otros, en comisarías —ironía o provocación, nadie supo.
+Los dejaron en bares (en las mesas del fondo, donde nadie mira), en colectivos (entre los asientos, donde alguien los encontraría por casualidad), en salas de espera de hospitales públicos. Algunos aparecieron en universidades, en las bibliotecas de los sindicatos. Otros, en comisarías —ironía o provocación, nadie supo.
 
-Algunos lo leían a escondidas, para no quedar de "agrandados". Otros lo criticaban sin haberlo leído. Otros lo subrayaban, lo discutían, lo pasaban.
+Algunos lo leían a escondidas, para no quedar de "agrandados". Otros lo criticaban sin haberlo leído. Otros lo subrayaban, lo discutían, lo pasaban de mano en mano como un secreto.
 
 El auto negro, por supuesto, se enteró.
 
-Una tarde, el Jefe lo esperó en la esquina de siempre.
+Una tarde de diciembre, con el sol pegando fuerte en el asfalto y el aire oliendo a goma caliente, el Jefe lo esperó en la esquina de siempre. Tenía la camisa abierta hasta el segundo botón, las zapatillas blancas impecables, el pelo engominado brillando bajo la luz.
 
 —Estanislao. Escribiste cosas. Sabemos. No tengo que decirte qué cosas.
 
@@ -5108,9 +5120,11 @@ Una tarde, el Jefe lo esperó en la esquina de siempre.
 
 —Es un cuaderno que explica cómo funciona todo. Y eso es más peligroso que un arma.
 
+El Jefe miró hacia la calle, donde pasaba un camión de basura levantando polvo.
+
 —¿Me vas a matar?
 
-El Jefe no contestó directamente. Encendió un cigarrillo, miró hacia la calle.
+El Jefe no contestó directamente. Encendió un cigarrillo, el humo subiendo recto en el aire quieto.
 
 —Todavía no decidimos qué hacer con vos. Hay gente que dice que sos manejable. Hay gente que dice que ya es tarde. Yo digo que depende de vos.
 
@@ -5118,21 +5132,23 @@ El Jefe no contestó directamente. Encendió un cigarrillo, miró hacia la calle
 
 —De si seguís escribiendo o te callás.
 
-Estanislao pensó en Mauro. En Julián. En todos los que habían intentado decir la verdad y habían pagado el precio.
+Estanislao pensó en Mauro, tirado en el piso del taller con un agujero en la frente. En Julián, que todavía no sabía que iba a terminar igual. En todos los que habían intentado decir la verdad y habían pagado el precio.
 
 —No me voy a callar.
 
-El Jefe asintió, como si ya lo supiera.
+El Jefe asintió, como si ya lo supiera. Tiró el cigarrillo al piso y lo apagó con el pie.
 
 —Entonces preparate para lo que viene.
 
-La bala llegó una noche, sin aviso.
+La bala llegó una noche de enero, sin aviso.
 
-No fue en el taller —ya no había taller. Fue en la calle, volviendo de La Escalera. Una moto pasó rápido, un disparo seco, y después el silencio.
+No fue en el taller —ya no había taller. Fue en la calle, volviendo de La Escalera a las once de la noche. El cielo estaba negro, sin estrellas, con olor a lluvia que no caía. Los faroles titilaban. Un perro ladraba a lo lejos.
 
-Lo encontraron tirado en la vereda, consciente, respirando corto.
+Una moto pasó rápido, el motor rugiendo como un animal, un disparo seco que sonó a trueno corto, y después el silencio.
 
-Una bala en el costado. No mortal, pero clara.
+Lo encontraron tirado en la vereda, consciente, respirando corto, la mano apretando el costado donde la sangre empezaba a mojar la remera.
+
+Una bala en el costado. No mortal, pero clara. Quirúrgica.
 
 El mensaje era inconfundible: **la próxima va al centro.**
 
@@ -5142,7 +5158,40 @@ En el hospital, mientras los médicos lo cosían, Estanislao pensó en algo que 
 
 Ahora él era ese ejemplo.
 # **<a name="_toc215679778"></a>Capítulo 21 – Pobrecito el que Habla**
-Esa noche, de vuelta en su cuarto, Estanislao abrió el libro impreso.
+
+El hospital público de San Aurelio olía a desinfectante barato, a comida recalentada y a algo más profundo: miedo. Los pasillos estaban llenos de gente esperando turnos que nunca llegaban, camillas con pacientes olvidados contra las paredes, enfermeros corriendo entre emergencias con caras de haber dormido poco.
+
+Estanislao pasó cinco días en una habitación compartida con tres tipos más: uno con la pierna enyesada que se quejaba toda la noche, otro que tosía sin parar, y un viejo que no hablaba pero miraba todo con ojos tristes.
+
+La bala había entrado limpia, sin tocar órganos vitales. Los médicos dijeron que era "suerte". Él sabía que era puntería: lo habían herido justo lo suficiente para que entendiera, pero no tanto como para que muriera.
+
+La madre llegó la primera noche, llorando, con el vestido manchado de aceite del comedor donde había estado trabajando. "Pobrecito mi nene", repetía, y a Estanislao la palabra le dolía más que la herida.
+
+—No soy pobrecito —le dijo, con voz rasposa por los calmantes—. Me hicieron esto porque NO soy pobrecito. Porque escribí. Porque pensé. Porque no me quedé quieto.
+
+La madre no entendió. O no quiso entender.
+
+La abuela vino al segundo día, con el rosario en la mano y una bolsa de facturas que compró gastando plata que no tenía. Se sentó al lado de la cama, le agarró la mano con sus dedos flacos llenos de callos, y le dijo algo que Estanislao no esperaba:
+
+—Tu abuelo también escribía. Antes de que lo volvieran borracho.
+
+Estanislao la miró sin entender.
+
+—No nació tomando. Lo quebraron. Le hicieron creer que era un pobrecito que no servía para nada. Y él se lo creyó. Y cuando te creés eso, la botella es la única salida que te dejan ver.
+
+Se quedaron en silencio. Por la ventana entraba el sol de la tarde, pintando rectángulos dorados en las sábanas sucias.
+
+—Vos no te quebraste —siguió la abuela—. Todavía.
+
+Lucas llegó al tercer día, con noticias.
+
+—El libro está circulando más que nunca. Desde que se enteraron de que te balearon, todo el mundo quiere leerlo. Lo están fotocopiando en todas partes.
+
+—Qué ironía —dijo Estanislao—. Me pegan un tiro para callarme y lo único que logran es que más gente me escuche.
+
+—Así funciona el sistema —respondió Lucas—. No entienden que las ideas no se matan con balas.
+
+Esa noche, de vuelta en su cuarto (lo habían dado de alta con indicaciones de reposo que no iba a poder cumplir), Estanislao abrió el libro impreso. Lo sostuvo con las manos que todavía temblaban un poco.
 
 En la contratapa, Lucas había agregado una frase nueva sin avisar:
 
