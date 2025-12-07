@@ -5328,27 +5328,39 @@ No necesito que nadie me autorice a dejar de ser solo un pobrecito en la histori
 Y esa idea —más que el libro, más que el tiro, más que cualquier discurso—\
 era la grieta real en la Teoría del Pobrecito.
 # **<a name="_toc215679779"></a>Capítulo 22 – El Otro Traidor de Clase**
-Un día, en La Escalera, Julián llegó distinto.
+Era un martes de febrero, de esos que el verano no quiere irse y el calor sigue pegando como amenaza.
 
-No en la ropa, que era la misma de siempre: camisa mal planchada, jean desgastado, zapatillas viejas.\
-Era algo en la cara: una mezcla de decisión y cansancio viejo.
+El aire olía a asfalto caliente y a basura que el camión no había pasado a buscar. Las chicharras gritaban desde los paraísos de la plaza, un coro insistente que se metía en la cabeza como un zumbido de fiebre.
 
-Esperó a que todos se sentaran y, en lugar de agarrar el marcador, se sentó él también.
+Estanislao llegó a La Escalera transpirando, con la remera pegada al cuerpo y las sandalias raspándole los talones. Había caminado las diez cuadras desde su casa bajo un sol que no perdonaba, esquivando los charcos de agua podrida que quedaban de la tormenta de la semana anterior.
 
-—Hoy vamos a hablar de otra cosa —dijo—.\
+La puerta de La Escalera estaba abierta de par en par, pero adentro el aire no corría. El ventilador de techo —el mismo de siempre, con las aspas amarillentas de polvo— daba vueltas lentas, moviendo apenas el calor de un lado al otro.
+
+Julián llegó distinto ese día.
+
+No en la ropa, que era la misma de siempre: camisa mal planchada con manchas de transpiración en las axilas, jean desgastado en las rodillas, zapatillas viejas que ya habían perdido el color original.\
+Era algo en la cara: una mezcla de decisión y cansancio viejo, como quien no durmió en días pensando algo que finalmente se decidió a decir.
+
+Esperó a que todos se sentaran —las sillas de plástico chirriando contra el piso de cemento, el murmullo de siempre de los pibes que llegaban tarde, el olor a café recalentado que salía de la cocina— y, en lugar de agarrar el marcador como siempre hacía, se sentó él también.
+
+La luz de la tarde entraba oblicua por la ventana sucia, dibujando un rectángulo amarillento en el piso de mosaico descascarado. Afuera, un perro ladraba sin convicción, como si el calor le hubiera sacado las ganas.
+
+—Hoy vamos a hablar de otra cosa —dijo Julián, con una voz que sonaba distinta, más grave, como si las palabras le costaran más que de costumbre—.\
 De mí.
 
-El murmullo fue inmediato.\
-No era común que hablara de sí mismo.
+El murmullo fue inmediato. Los pibes se miraron entre ellos, algunos con caras de sorpresa, otros con esa curiosidad nerviosa de cuando sabés que viene algo importante.\
+No era común que hablara de sí mismo. En todos esos meses, Julián había sido el que escuchaba, el que preguntaba, el que ponía preguntas en el pizarrón para que los demás pensaran. Pero de su vida personal, casi nada.
 
-—Muchos de ustedes creen que yo soy uno más del barrio —siguió—.\
+Una mosca zumbaba cerca del ventilador, golpeándose contra las aspas cada vez que pasaban. El ruido era mínimo pero constante, como un recordatorio de que el mundo seguía afuera, ajeno a lo que estaba por decirse.
+
+—Muchos de ustedes creen que yo soy uno más del barrio —siguió, limpiándose el sudor de la frente con el dorso de la mano—.\
 Que nací acá, que siempre fui pobre, que sé lo que es la calle desde pibe.\
-Hay cosas de eso que aprendí después.\
+Hay cosas de eso que aprendí después, caminando estas veredas, sentándome en estas sillas, escuchándolos a ustedes.\
 Pero no nací acá.
 
-Se hizo un silencio raro.
+Se hizo un silencio raro, denso como el calor que flotaba en el aire. Hasta el perro de afuera había dejado de ladrar.
 
-—Yo nací muy lejos de este lugar —dijo—.\
+—Yo nací muy lejos de este lugar —dijo, mirando al piso como si las palabras le pesaran—.\
 No en otro país.\
 En otra clase social.
 
@@ -5356,22 +5368,24 @@ Se levantó y dibujó tres círculos en el pizarrón:
 
 BAJA – MEDIA – ALTA
 
-Se señaló a sí mismo, arriba de ALTA.
+Se señaló a sí mismo, arriba de ALTA. El marcador chirrió contra el pizarrón blanco, un sonido que se quedó flotando en el silencio.
 
-—Mi familia es de plata —dijo, sin rodeos—.\
+—Mi familia es de plata —dijo, sin rodeos, mirándolos a todos a los ojos por primera vez desde que había empezado a hablar—.\
 Mucha.\
-Estancias, empresas, socios en bancos, apellidos que salen en diarios cuando hay reuniones importantes.\
-Yo me eduqué en colegios caros, viajé de chico, tuve acceso a todos los libros que quise.\
-Todo lo que acá suena a lujo para algunos… para mí era normal.
+Estancias en el campo, campos de soja que se pierden en el horizonte, empresas que emplean a cientos de personas, socios en bancos donde la gente como ustedes ni entra, apellidos que salen en los diarios cuando hay reuniones importantes en el Gobierno.\
+Yo me eduqué en colegios caros donde el uniforme costaba más que el sueldo de un mes de la mayoría de acá, viajé de chico a lugares que ustedes solo vieron en películas, tuve acceso a todos los libros que quise, en bibliotecas que olían a cuero y madera pulida.\
+Todo lo que acá suena a lujo para algunos… para mí era normal. Era el aire que respiraba.
 
 Estanislao lo miraba con una extraña mezcla de sorpresa y alivio:\
-*por fin* había puesto palabras a algo que se intuía.
+*por fin* había puesto palabras a algo que se intuía, como cuando alguien confirma un secreto que todos sospechaban pero nadie se animaba a decir en voz alta.
 
-—¿Y qué hacés acá, entonces? —preguntó una piba del fondo, sin filtro.
+Afuera, el sol empezaba a bajar y la luz que entraba por la ventana se volvía más naranja, más suave. El calor seguía, pero ya no era tan feroz.
 
-Julián sonrió.
+—¿Y qué hacés acá, entonces? —preguntó una piba del fondo, sin filtro, con esa honestidad brutal de los que no tienen nada que perder. Tenía el pelo recogido en una cola desprolija y los ojos pintados de negro, como si el maquillaje fuera su armadura.
 
-—Buena pregunta —dijo—.\
+Julián sonrió, pero no era una sonrisa alegre. Era la sonrisa de quien sabe que está por contar algo que le costó años entender.
+
+—Buena pregunta —dijo, sentándose en el borde del escritorio, que crujió bajo su peso—.\
 La respuesta corta: me cansé del cuento del pobrecito versión de clase alta.
 
 Agarró el marcador y escribió al lado de ALTA:
@@ -5549,22 +5563,24 @@ Era también el puente que unía:
 
 Lo que ninguno de los dos sabía todavía era cuánto iba a durar Julián.
 # **<a name="_toc215679780"></a>Capítulo 23 – Leer, Imaginar, Comprender, Salir**
-Pasaron algunos meses.
+Pasaron algunos meses. El verano se fue con sus tormentas tardías y llegó el otoño, con sus tardes cortas y sus noches que olían a hojas quemadas.
 
-**La Teoría del Pobrecito** seguía andando sola:\
-fotocopias sucias en barrios como el de Estanislao,\
-PDFs reenviados en grupos de docentes y estudiantes,\
-algún ejemplar empezando a aparecer en bibliotecas universitarias.
+**La Teoría del Pobrecito** seguía andando sola, como un fuego que nadie podía apagar por más que lo intentaran:\
+fotocopias sucias en barrios como el de Estanislao, con los bordes manchados de dedos grasientos,\
+PDFs reenviados en grupos de docentes y estudiantes que se pasaban el archivo como si fuera un secreto prohibido,\
+algún ejemplar empezando a aparecer en bibliotecas universitarias, perdido entre libros de sociología que nadie leía.
 
-El *paper* de Julián, en cambio, se movía por arriba:
+El olor a otoño se metía por las rendijas de La Escalera: humedad de hojas podridas, humo de quemas lejanas, ese aire fresco que anunciaba el invierno.
 
-- ministerios,
-- cámaras empresarias,
-- sindicatos nacionales,
-- fundaciones,
-- universidades privadas.
+El *paper* de Julián, en cambio, se movía por arriba, por los pasillos con alfombras y los despachos con aire acondicionado:
 
-Ahí se lo leía con otro tono: menos emoción, más cálculo.
+- ministerios con paredes de mármol,
+- cámaras empresarias donde el café se servía en tazas de porcelana,
+- sindicatos nacionales con sedes que parecían palacios,
+- fundaciones que organizaban eventos con canapés y vino caro,
+- universidades privadas donde los alumnos llegaban en autos que costaban lo que una casa del barrio.
+
+Ahí se lo leía con otro tono: menos emoción, más cálculo. Lo discutían en reuniones a puertas cerradas, donde la palabra "pobrecito" se pronunciaba con una mueca de incomodidad, como si quemara en la boca.
 
 El título ya corría de boca en boca en esos ambientes:
 
@@ -5686,20 +5702,22 @@ A mí, si me toca, me va a tocar por escribir desde arriba.\
 Mismo crimen, distinto escenario.
 
 -----
-La noticia llegó unas semanas después.
+La noticia llegó una mañana de mayo, de esas que el otoño ya se siente invierno.
 
-Estanislao entró a La Escalera y encontró a Lucas con el celular en la mano y la cara descompuesta.
+El cielo estaba gris como una sábana sucia, y el viento traía olor a río y a basura mojada.
 
-—Sentate —le dijo.
+Estanislao entró a La Escalera temblando de frío y encontró a Lucas con el celular en la mano y la cara descompuesta. Estaba pálido, con los ojos rojos como si hubiera estado llorando.
+
+—Sentate —le dijo Lucas, con una voz que no parecía la suya.
 
 Le mostró una nota de un portal chico.
 
 “HALLAN MUERTO A INVESTIGADOR CRÍTICO DEL SISTEMA POLÍTICO Y SINDICAL SAN-AURELIANO.”
 
-Foto: Julián, en una conferencia de hacía años.
+Foto: Julián, en una conferencia de hacía años. Sonreía en la foto, con esa sonrisa que Estanislao conocía tan bien.
 
-El cuerpo había aparecido en una ruta secundaria, lejos del barrio.\
-Manos marcadas, signos de tortura, un tiro final en la cabeza.
+El cuerpo había aparecido en una ruta secundaria, lejos del barrio, en un lugar donde nadie pasaba.\
+Manos marcadas por ataduras, signos de tortura que el parte médico describía con palabras frías, un tiro final en la cabeza.
 
 La policía hablaba de “investigar todas las hipótesis”: robo, crimen pasional, ajuste de cuentas.
 
@@ -5944,30 +5962,36 @@ Días de hospital, controles, la madre repitiendo “pobrecito mi nene”,\
 amigos que aparecían con caras de velorio aunque él estuviera vivo.
 
 Luego vino la casa.\
-Los ruidos conocidos, pero cargados de otra cosa.
+Los ruidos conocidos —el crujido de la puerta de chapa, el ladrido del perro del vecino, la radio de la abuela— pero cargados de otra cosa, de un peso nuevo que no se iba.
+
+El olor a kerosén de siempre, pero mezclado con el de las vendas limpias y las pastillas para el dolor.
 
 Los primeros meses fueron de sobrevivir:\
 curaciones, trámites, cintura para esquivar preguntas (“¿fue por el libro?”, “¿te metiste en algo raro?”),\
 discusiones con la madre sobre si seguir yendo a La Escalera,\
 discusiones con sí mismo sobre si seguir escribiendo.
 
-El taller de Mauro siguió clausurado.\
-La mancha en el piso, tapada.\
-Los carteles de seguridad, despintándose.
+El taller de Mauro siguió clausurado, como un recordatorio silencioso.\
+La mancha en el piso donde había caído, tapada con una lona que nadie se animaba a levantar.\
+Los carteles de seguridad, despintándose bajo el sol y la lluvia, como si el tiempo quisiera borrar lo que había pasado.
 
-El barrio, pasado el comentario inicial, volvió a lo de siempre.
+El barrio, pasado el comentario inicial y el murmullo de los primeros días, volvió a lo de siempre: las mismas caras, las mismas esquinas, la misma resignación.
 
-—Viste, al final zafó el pibe —decían—.\
-Ojalá haya aprendido.\
-No es para nosotros jugar a inteligentes.
+—Viste, al final zafó el pibe —decían en la verdulería, en el bar, en la cola del comedor—.\
+Ojalá haya aprendido la lección.\
+No es para nosotros jugar a inteligentes. Eso es para otros.
 
 -----
-Un día, mientras acomodaba sus cosas, Estanislao abrió por costumbre el cajón donde guardaba el cuaderno.
+Un día de junio, mientras acomodaba sus cosas en la pieza que olía a humedad y a remedio, Estanislao abrió por costumbre el cajón donde guardaba el cuaderno.
 
-Pero esta vez, además del cuaderno, había otra pila:\
-libros que Julián le había dejado, algunos con su letra al margen.
+El cajón estaba hinchado por la humedad del invierno, y crujió cuando lo abrió.
 
-Los repasó uno por uno.
+Pero esta vez, además del cuaderno con sus tapas gastadas y sus hojas amarillentas, había otra pila:\
+libros que Julián le había dejado antes de morir, algunos con su letra torcida al margen, otros con páginas marcadas con papelitos de colores.
+
+Los repasó uno por uno, con el cuidado de quien toca algo sagrado.
+
+Las tapas olían a papel viejo y a biblioteca. Las hojas estaban llenas de subrayados, de signos de pregunta, de exclamaciones.
 
 En casi todos, en algún punto, había una nota del tipo:
 
@@ -5985,18 +6009,18 @@ Una costumbre: leer.
 Y otra: escribir.
 
 -----
-Volvió a La Escalera.
+Volvió a La Escalera en agosto, cuando el invierno empezaba a aflojar pero el frío todavía se metía en los huesos.
 
 Los primeros días, los pibes lo miraban distinto.\
 Ya no solo como compañero o ayudante.\
 También como ese al que “casi lo matan”.
 
-A él le incomodaba.
+A él le incomodaba. Sentía las miradas clavadas en la espalda cuando se daba vuelta, los susurros que se cortaban cuando entraba al salón.
 
 —No soy héroe —repetía—.\
 Soy un tipo al que le pegaron un tiro y que todavía debe el alquiler.
 
-Una tarde, uno de los chicos nuevos le dijo:
+Una tarde de primavera temprana, cuando el sol ya calentaba un poco más, uno de los chicos nuevos le dijo:
 
 —Profe, yo leí tu libro. El que anda dando vueltas.
 
@@ -6004,7 +6028,7 @@ Estanislao se quedó duro.
 
 —No soy profe —respondió, por reflejo.
 
-El pibe sonrió.
+El pibe sonrió. Tenía los dientes desparejos y los ojos brillantes, llenos de algo que Estanislao reconoció: ganas de entender.
 
 —Bueno, el que sea —dijo—.\
 Lo que quiero decir es que me re calenté con algunas cosas,\
@@ -6012,7 +6036,7 @@ pero también me di cuenta de que siempre me hablé como pobrecito.\
 “Pobrecito yo, nací acá, no voy a salir nunca”.\
 Me quiero enojar con vos, pero también conmigo.
 
-Le mostró un cuaderno.
+Le mostró un cuaderno. Era de los baratos, con la tapa de cartón blando y las hojas amarillentas, pero estaba lleno de letra apretada.
 
 En la tapa decía:
 
@@ -6036,12 +6060,12 @@ No un acto heroico.\
 Un cuaderno.
 
 -----
-Esa noche, en la reunión de equipo de La Escalera, habló.
+Esa noche, en la reunión de equipo de La Escalera, habló. El salón estaba lleno del olor a café barato y a cigarrillos que alguien fumaba en la puerta.
 
-—Yo no puedo dirigir esto —dijo—.\
-No soy pedagogo ni tengo paciencia para todos.
+—Yo no puedo dirigir esto —dijo, mirándolos a todos a los ojos—.\
+No soy pedagogo ni tengo paciencia para todos. Me la paso pensando en escribir, no en enseñar.
 
-Se rieron.
+Se rieron. El Negro le tiró una galletita que él esquivó.
 
 —Pero sí puedo hacer algo concreto:\
 armar un espacio fijo, chiquito, donde el que quiera pueda venir a **leer y escribir**.\
@@ -6061,16 +6085,18 @@ No importa si es teoría, carta, rap, lista de cosas que le joden.\
 La idea no es que escriban lindo.\
 Es que se acostumbren a **no tragarse todo en silencio**.
 
-Hubo dudas, chistes, bromas.
+Hubo dudas, chistes, bromas. Alguien preguntó si había que llevar mate.
 
-Pero lo probaron.
+Pero lo probaron. No tenían nada que perder.
 
 -----
-Los primeros encuentros fueron raros.
+Los primeros encuentros fueron raros, como todo lo nuevo que no se sabe bien cómo va a salir.
 
-Algunos pibes agarraban libros solo para hacer ruido y joder.\
-Otros los abrían de verdad, leían dos renglones y se perdían.\
-Algunos escribían dos líneas y se trababan.
+Se juntaban en el patio de La Escalera, cuando el tiempo era bueno, o adentro, cuando llovía. El olor a humedad se mezclaba con el del café y el de los libros viejos.
+
+Algunos pibes agarraban libros solo para hacer ruido y joder, tirándoselos entre ellos como pelotas.\
+Otros los abrían de verdad, leían dos renglones y se perdían mirando el techo, como si las palabras les entraran demasiado lento.\
+Algunos escribían dos líneas y se trababan, con la lapicera suspendida en el aire como si la siguiente palabra se hubiera escapado.
 
 Estanislao no daba clase.\
 Solo hacía preguntas:
@@ -6101,29 +6127,31 @@ Pero él reconocía esas chispas.\
 Sabía de dónde venían.
 
 -----
-En su propia casa, las cosas no eran fáciles.
+En su propia casa, las cosas no eran fáciles. Nunca lo habían sido, pero ahora había una tensión nueva, un miedo que flotaba en el aire como el olor a humedad.
 
-La madre seguía con miedo.
+La madre seguía con miedo. Se quedaba despierta hasta que él llegaba, mirando por la ventana cada vez que pasaba un auto.
 
-—Yo quiero que estés tranquilo —decía—.\
-No quiero volver a verte en una cama con cables.
+—Yo quiero que estés tranquilo —decía, con los ojos llenos de algo que no se animaba a nombrar—.\
+No quiero volver a verte en una cama con cables. No quiero pasar por eso de nuevo, Estani.
 
-La abuela, entre rezos, a veces se le escapaba:
+La abuela, entre rezos y rosarios que pasaban por sus dedos arrugados, a veces se le escapaba:
 
-—Pobrecito, con lo inteligente que es, y en este país…
+—Pobrecito, con lo inteligente que es, y en este país de mierda…
 
-Estanislao, cansado pero firme, empezaba a corregir suavemente:
+Estanislao, cansado pero firme, empezaba a corregir suavemente, aunque sabía que era una pelea que no iba a ganar:
 
 —No soy pobrecito, abuela.\
 Estoy jodido, que es distinto.\
-Pero no estoy roto.
+Pero no estoy roto. Todavía no.
 
-Algunas noches, cuando todos dormían, él se quedaba leyendo en voz baja.\
-No para memorizar, sino para **desarmar** lo que el día le había armado.
+Algunas noches, cuando todos dormían y la casa se llenaba de los ronquidos de la abuela y el crujido de las chapas, él se quedaba leyendo en voz baja a la luz del velador.\
+No para memorizar, sino para **desarmar** lo que el día le había armado en la cabeza.
 
-Seguía teniendo miedo.\
-Seguía sin plata.\
-Seguía sin taller.
+Afuera, los perros ladraban a la nada y algún auto pasaba con la música fuerte. Adentro, las páginas de los libros hacían un ruido suave, como de hojas secas.
+
+Seguía teniendo miedo. No era estúpido: sabía que lo podían volver a buscar.\
+Seguía sin plata. El taller de Mauro estaba clausurado y él vivía de changas.\
+Seguía sin taller propio. Sin título. Sin nada que la gente de arriba considerara valioso.
 
 Pero, por primera vez, sentía que **no estaba desarmado por dentro**.
 
