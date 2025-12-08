@@ -6163,52 +6163,76 @@ Y eso, había aprendido, era más difícil de clausurar que un galpón.
 # **<a name="_toc215679782"></a>Capítulo 25 – La Salida Chica**
 <a name="_toc215679783"></a>Un año después del tiro.
 
+Era octubre otra vez. El mismo mes en que todo había empezado a derrumbarse. Pero ahora el aire traía un olor distinto: a jazmín temprano y a tierra mojada por las primeras lluvias de primavera.
+
+Estanislao caminaba por el barrio con la cicatriz tirándole debajo de la remera. Ya no dolía como antes —el médico le había dicho que era normal, que los nervios se acostumbraban— pero cada vez que el viento helado del sur le pegaba en el costado, sentía ese pinchazo sordo que le recordaba que seguía vivo.
+
+Un año. Trescientos sesenta y cinco días desde que el Jefe le había metido una bala en el cuerpo. Desde que Mauro había aparecido tirado en el piso del taller. Desde que Julián había dejado de respirar en un departamento que nadie quiso alquilar después.
+
 El barrio estaba igual y distinto.
 
-Igual en lo que se veía desde afuera: mismos baches en las calles, mismos cables colgando como telarañas, mismos colectivos llenos de gente apretada, mismas colas en el comedor comunitario donde la madre seguía trabajando.
+Igual en lo que se veía desde afuera: mismos baches en las calles donde el agua de lluvia formaba charcos marrones, mismos cables colgando como telarañas entre postes torcidos que nadie enderezaba, mismos colectivos llenos de gente apretada que olían a sudor y a escape de motor, mismas colas en el comedor comunitario donde la madre seguía trabajando con las manos agrietadas de tanto lavar platos.
 
-La casa de Estanislao tenía la misma humedad, el mismo olor a kerosén, el mismo televisor chueco que seguía transmitiendo las mismas noticias sobre los mismos pobrecitos.
+La casa de Estanislao tenía la misma humedad trepando por las paredes como si quisiera tragársela, el mismo olor a kerosén que salía de la cocina de la abuela cada mañana, el mismo televisor chueco que seguía transmitiendo las mismas noticias sobre los mismos pobrecitos.
+
+Afuera, los perros callejeros seguían buscando comida en las bolsas de basura. El almacén de Don Roque seguía fiando a quien no podía pagar. La esquina donde habían matado a Mauro seguía marcada con una cruz de madera que alguien había pintado de celeste y blanco.
 
 Y sin embargo, algo había cambiado.
 
-Cambios chicos. Cambios invisibles para el que no sabía mirar.
+Cambios chicos. Cambios invisibles para el que no sabía mirar. Cambios que se escondían en conversaciones de cocina, en cuadernos abiertos a medianoche, en miradas que ya no bajaban al piso cuando alguien preguntaba "¿y vos qué vas a ser?".
 
 -----
 **Dos pibes se habían anotado en una tecnicatura.**
 
-Ernesto, el hijo del verdulero, había empezado a estudiar electricidad. Decía que quería armar su propio taller, como Mauro.
+Ernesto, el hijo del verdulero —el mismo que le había pagado a Mauro en cuotas de manzanas y zanahorias— había empezado a estudiar electricidad. Venía a La Escalera cada viernes con los dedos manchados de grasa y un cuaderno lleno de diagramas de circuitos. Decía que quería armar su propio taller, como Mauro.
 
-—No quiero depender de nadie —le dijo a Estanislao un día—. Ni del Estado, ni de los chorros, ni de los empresarios. Quiero hacer algo con las manos y que me paguen por eso.
+—No quiero depender de nadie —le dijo a Estanislao una tarde de sol mientras tomaban mate en el patio de mosaicos rotos—. Ni del Estado, ni de los chorros, ni de los empresarios que te exprimen y después lloran pobrecitos cuando les va mal. Quiero hacer algo con las manos y que me paguen por eso. Plata limpia. Como decía el viejo Mauro.
 
-El otro era Tomás, un pibe que venía de una familia donde nadie había terminado el secundario. Estaba estudiando diseño gráfico. Había empezado a hacer carteles para los negocios del barrio, cobrando poco, pero cobrando.
+Estanislao asintió. Recordó las manos de Mauro: gruesas, con callos y cicatrices, con ese dedo torcido que nunca se había arreglado porque "no hay tiempo para boludeces". Manos que hacían cosas. Manos que producían.
 
-—Mi vieja me dice que soy un soñador —contó—. Pero yo le digo: soñar es gratis, ma. Dejar de intentar es lo que cuesta.
+El otro era Tomás, un pibe que venía de una familia donde nadie había terminado el secundario. Su viejo tomaba en la esquina y su vieja limpiaba casas en el centro para pagar las cuentas. Pero Tomás había empezado a estudiar diseño gráfico en una tecnicatura pública. Había conseguido una computadora usada —pantalla rota en una esquina, teclas gastadas— y había empezado a hacer carteles para los negocios del barrio, cobrando poco, pero cobrando.
+
+—Mi vieja me dice que soy un soñador —contó mientras mostraba un logo que había hecho para la peluquería de la vuelta—. Pero yo le digo: soñar es gratis, ma. Dejar de intentar es lo que cuesta.
 
 -----
 **Una piba empezó a escribir letras de rap.**
 
-Se llamaba Carla. Tenía diecisiete años y un cuaderno lleno de versos que mezclaban lo que pasaba en la esquina con frases de libros que había leído en La Escalera.
+Se llamaba Carla. Tenía diecisiete años, el pelo teñido de violeta —con raíces negras porque no le alcanzaba para retocarse— y un cuaderno lleno de versos que mezclaban lo que pasaba en la esquina con frases de libros que había leído en La Escalera.
 
-Una de sus letras decía:
+Estanislao la había visto llegar a los encuentros de lectura con los ojos pintados de negro y una actitud de "no me importa nada" que escondía una curiosidad feroz. Al principio no hablaba. Solo escuchaba, sentada en un rincón con los auriculares colgando del cuello. Pero después de unos meses empezó a traer sus letras.
 
-*"Me dicen pobrecita, me quieren callada,* *pero yo leo libros y tengo la mirada* *puesta en un futuro que nadie me pintó,* *un mapa que yo misma con lápiz dibujó."*
+Una de ellas decía:
 
-Había empezado a cantar en las juntadas del barrio. Algunos se reían. Otros la escuchaban con atención.
+*"Me dicen pobrecita, me quieren callada,*
+*pero yo leo libros y tengo la mirada*
+*puesta en un futuro que nadie me pintó,*
+*un mapa que yo misma con lápiz dibujó.*
 
-—No me importa si no les gusta —decía—. Lo que importa es que estoy diciendo lo que pienso. Eso ya es un montón.
+*No me vendan cuentos de víctimas eternas,*
+*que yo con mis palabras me abro mis propias puertas.*
+*Y si el sistema quiere que me quede quieta,*
+*le voy a contestar rimando en esta libreta."*
+
+Había empezado a cantar en las juntadas del barrio, en esquinas donde antes solo se escuchaba cumbia de parlantes baratos. Algunos se reían —"mirá la loca esta con sus versitos"—. Otros la escuchaban con atención, con esa mirada de quien reconoce algo verdadero.
+
+—No me importa si no les gusta —decía Carla, con los ojos brillantes y la barbilla levantada—. Lo que importa es que estoy diciendo lo que pienso. Eso ya es un montón. Antes ni siquiera sabía que podía pensar algo propio.
 
 -----
 **Una madre dejó de decirle "pobrecito" a su hijo.**
 
-Era Marta, la vecina de tres casas más abajo. Tenía un hijo adolescente que siempre reprobaba en la escuela.
+Era Marta, la vecina de tres casas más abajo, la que siempre colgaba la ropa en el alambre oxidado del patio y le gritaba a los perros que se metían en su terreno. Tenía un hijo adolescente que siempre reprobaba en la escuela, un pibe flaco de quince años con cara de dormido que arrastraba los pies cuando caminaba.
 
-Antes, cada vez que el pibe fallaba, ella decía: "Pobrecito, si con la escuela que tenemos, qué vas a aprender".
+Estanislao había escuchado mil veces la escena desde su casa: el grito de Marta llamándolo a comer, la queja de ella sobre las notas, el silencio del pibe que nunca contestaba.
 
-Después de leer el libro de Estanislao —que le había prestado Lucas—, dejó de decir eso.
+Antes, cada vez que el pibe fallaba, Marta decía: "Pobrecito, si con la escuela que tenemos, qué vas a aprender. Pobrecito, si los profesores no vienen nunca. Pobrecito, si no hay ni libros en la biblioteca".
 
-—Ahora le digo: "¿Qué vas a hacer distinto la próxima vez?" —contó—. No lo trato como si fuera incapaz. Lo trato como si pudiera aprender.
+El pibe escuchaba eso y bajaba la cabeza. Era como si le confirmaran que no valía la pena intentar.
 
-El pibe todavía reprobaba a veces. Pero algo había cambiado en su mirada. Ya no bajaba los ojos cuando le preguntaban qué quería ser de grande.
+Después de leer el libro de Estanislao —que le había prestado Lucas un domingo mientras esperaban en la fila del comedor—, Marta dejó de decir eso.
+
+—Ahora le digo: "¿Qué vas a hacer distinto la próxima vez?" —contó una tarde, mientras tendía sábanas en el alambre y el viento del sur las hacía flamear como banderas—. No lo trato como si fuera incapaz. Lo trato como si pudiera aprender. Como si dependiera de él.
+
+El pibe todavía reprobaba a veces. Pero algo había cambiado en su mirada. Ya no bajaba los ojos cuando le preguntaban qué quería ser de grande. Ahora decía "todavía no sé" en lugar de "qué voy a ser yo". Y ese "todavía" era un mundo de diferencia.
 
 -----
 No era una revolución. Estanislao lo sabía.
@@ -6222,27 +6246,41 @@ Pero había algo distinto.
 Como el agua que entra por una grieta en el techo: no derrumba la casa, pero va mojando las cosas de a poco. Va cambiando la temperatura. Va haciendo que te des cuenta de que hay un problema.
 
 -----
-Una tarde, Estanislao se sentó en la vereda del taller clausurado de Mauro.
+Una tarde de octubre, cuando el sol empezaba a ponerse anaranjado y las chicharras gritaban desde los paraísos de la plaza, Estanislao se sentó en la vereda del taller clausurado de Mauro.
 
-El cartel de intimación seguía pegado en la puerta, descolorido por el sol. Las herramientas habían sido vendidas para pagar deudas. La máquina de soldar, esa que Mauro tanto cuidaba, terminó en manos de un tipo que ni siquiera sabía usarla.
+El cartel de intimación seguía pegado en la puerta de chapa, descolorido por el sol hasta volverse casi ilegible. Las herramientas habían sido vendidas para pagar deudas —la viuda de Mauro necesitaba comer—. La máquina de soldar, esa que Mauro tanto cuidaba, esa que le había enseñado a usar con tanta paciencia, terminó en manos de un tipo del centro que ni siquiera sabía para qué servía cada boquilla.
 
-Estanislao miró la puerta cerrada y sintió el peso de todo lo que no habían podido salvar.
+Estanislao se sentó en el cordón de la vereda, con las piernas estiradas y la espalda apoyada contra la pared de ladrillos huecos. El olor del taller todavía estaba ahí, mezclado con el polvo: metal caliente, serrín, aceite de máquina. O quizás era su memoria la que olía.
 
-Abrió el cuaderno y escribió:
+Miró la puerta cerrada, el candado oxidado que nadie había abierto en meses, la lona sucia que tapaba la ventana rota. Y sintió el peso de todo lo que no habían podido salvar.
 
-*"No pudimos salvar el taller.* *No pudimos salvar a Mauro.* *No pudimos salvar a Julián.*
+Abrió el cuaderno —el mismo que había empezado hace tres años, ahora gordo de páginas escritas y dobladas— y escribió:
+
+*"No pudimos salvar el taller.*
+*No pudimos salvar a Mauro.*
+*No pudimos salvar a Julián.*
 
 *Lo que sí pudimos fue no entregarles la cabeza del todo.*
 
-*Lo que sí pudimos fue seguir leyendo cuando nos dijeron que leer era de inútiles.* *Lo que sí pudimos fue seguir pensando cuando nos dijeron que pensar era de traidores.* *Lo que sí pudimos fue seguir hablando cuando nos pegaron un tiro para callarnos."*
+*Lo que sí pudimos fue seguir leyendo cuando nos dijeron que leer era de inútiles.*
+*Lo que sí pudimos fue seguir pensando cuando nos dijeron que pensar era de traidores.*
+*Lo que sí pudimos fue seguir hablando cuando nos pegaron un tiro para callarnos."*
 
-Hizo una pausa. El sol de la tarde caía sobre la calle de tierra, dorando las chapas de los techos. Un grupo de chicos jugaba a la pelota en la esquina, gritando.
+Hizo una pausa. El sol de la tarde caía oblicuo sobre la calle de tierra, dorando las chapas de los techos y pintando sombras largas en las veredas. Un grupo de chicos jugaba a la pelota en la esquina, gritando goles imaginarios. Una vecina arrastraba un changuito de compras vacío. Un perro ladraba a un colectivo que pasaba levantando polvo.
+
+Era el barrio de siempre. Pero ya no se sentía igual.
 
 Siguió escribiendo:
 
-*"Aprendí estos años que salir no es irse del barrio,* *ni hacerse rico,* *ni ganar todas las batallas.*
+*"Aprendí estos años que salir no es irse del barrio,*
+*ni hacerse rico,*
+*ni ganar todas las batallas.*
 
-*Salir es esto:* *– dejar de hablarme como pobrecito,* *– dejar de esperar que alguien me adopte,* *– y usar lo que sé —aunque sea poco—* *para que otro vea un poco más claro.*
+*Salir es esto:*
+*– dejar de hablarme como pobrecito,*
+*– dejar de esperar que alguien me adopte,*
+*– y usar lo que sé —aunque sea poco—*
+*para que otro vea un poco más claro.*
 
 *Salir es chico. Es mínimo. Es casi invisible.*
 
@@ -6294,31 +6332,45 @@ Y alguien, en algún lugar de San Aurelio, había dejado de creer.
 ## <a name="_toc215679784"></a>**Nota del Autor**
 *Este capítulo fue retirado de las primeras ediciones por presión directa del Gobernador de la Provincia y funcionarios cercanos al Presidente. Alegaron que contenía "información difamatoria" y "afirmaciones sin fundamento" que podían "afectar la paz social".*
 
-*Los abogados de la editorial recibieron una carta firmada por el Ministerio del Interior sugiriendo que la publicación de este material podría "generar consecuencias legales y de otra índole".*
+*Los abogados de la editorial recibieron una carta firmada por el Ministerio del Interior sugiriendo que la publicación de este material podría "generar consecuencias legales y de otra índole". La carta estaba escrita en papel membretado, con el escudo nacional brillando en relieve. La firmaba un subsecretario cuyo nombre no vale la pena mencionar: hay docenas como él, intercambiables, siempre disponibles para hacer el trabajo sucio.*
 
 *Hoy, a un año de aquellos hechos, decidí incluirlo como apéndice. Porque censurar la verdad no la hace desaparecer. Solo la vuelve más urgente.*
 
 *Lo que sigue es exactamente lo que no querían que leyeras.*
 
+*— E., desde San Aurelio, con la cicatriz todavía tirando cuando hace frío.*
+
 \---
 ## <a name="_toc215679785"></a>**El Capítulo Censurado – Los Nombres del Monstruo**
 Lo que nadie te cuenta es que el monstruo tiene nombres.
 
-No hablo de metáforas. Hablo de firmas en documentos, de transferencias bancarias, de contratos con números y fechas. Hablo de reuniones que ocurrieron en despachos oficiales, con café servido en tazas de porcelana y corbatas de seda.
+No hablo de metáforas. No hablo de símbolos ni de ficciones cómodas. Hablo de firmas en documentos, de transferencias bancarias con números de cuenta y fechas específicas, de contratos firmados en despachos con aire acondicionado y alfombras importadas. Hablo de reuniones que ocurrieron en lugares reales, con café servido en tazas de porcelana y corbatas de seda y perfumes que cuestan más que el sueldo mensual de mi madre.
+
+El monstruo tiene nombres. Y los nombres tienen direcciones.
+
+\---
 
 El Gobernador se llama [CENSURADO POR ORDEN JUDICIAL].
 
-Lo conocí una vez. Fue en un acto de "inauguración" de un centro comunitario que llevaba tres años abandonado. Lo vi sonreír para las cámaras, estrechar manos, besar a bebés que no conocía. Lo vi prometer "un futuro digno para los pobrecitos de nuestra provincia".
+Lo conocí una vez. Fue en un acto de "inauguración" de un centro comunitario que llevaba tres años abandonado —el mismo donde ahora funciona La Escalera—. Era un día de calor pegajoso, de esos que te hacen transpirar apenas salís de la sombra. El aire olía a choripán y a basura sin recoger.
+
+Lo vi llegar en una caravana de autos negros con vidrios polarizados. Lo vi bajarse con un séquito de custodios que alejaban a la gente como si fueran moscas. Lo vi sonreír para las cámaras —esa sonrisa ensayada de quien ha posado miles de veces—, estrechar manos con ese gesto mecánico de político profesional, besar la frente de bebés que no conocía y que probablemente olvidaría antes de llegar al auto.
+
+Lo vi prometer "un futuro digno para los pobrecitos de nuestra provincia". Usó esa palabra —pobrecitos— con la naturalidad de quien habla de mascotas o de plantas de jardín.
 
 Lo que no mostró la tele fue lo que pasó después.
 
-Cuando las cámaras se apagaron, el Gobernador se subió a una camioneta blindada. Lo vi desde la esquina, mientras fingía esperar el colectivo. La camioneta se detuvo frente a un edificio privado, de esos con portero eléctrico y cámaras en cada esquina.
+Cuando las cámaras se apagaron —cuando los periodistas guardaron sus equipos y los móviles se fueron con sus antenas parabólicas—, el Gobernador cambió. Vi cómo se le aflojaba la cara, cómo le volvía un gesto de cansancio y fastidio que no había estado ahí segundos antes. Se sacó el saco, se aflojó la corbata, murmuró algo a su secretario que hizo reír a los custodios.
 
-Un hombre lo esperaba en la puerta. Lo reconocí: era [CENSURADO POR ORDEN JUDICIAL], el empresario dueño del Grupo Alborada, el mismo que financiaba las campañas políticas del partido oficial.
+Después se subió a una camioneta blindada —no uno de los autos negros, sino una más discreta, sin patente visible—. Lo vi desde la esquina, mientras fingía esperar el colectivo con los demás "pobrecitos" del barrio.
+
+La camioneta se detuvo frente a un edificio privado en la zona norte de la ciudad, de esos con portero eléctrico y cámaras en cada esquina, de esos donde un departamento cuesta lo que toda mi cuadra junta no podría pagar en diez vidas.
+
+Un hombre lo esperaba en la puerta. Traía un traje gris impecable y un reloj que brillaba incluso desde donde yo estaba. Lo reconocí: era [CENSURADO POR ORDEN JUDICIAL], el empresario dueño del Grupo Alborada, el mismo que financiaba las campañas políticas del partido oficial, el mismo que aparecía en las fotos de las galas de caridad y en los suplementos de negocios sonriendo como si el mundo le perteneciera.
 
 Se abrazaron como viejos amigos. Entraron juntos.
 
-Dos horas después, salieron. El empresario le dio un sobre. El Gobernador se lo guardó en el bolsillo interior del saco.
+Dos horas después, salieron. El empresario le dio un sobre —grueso, color madera, sin identificación visible—. El Gobernador se lo guardó en el bolsillo interior del saco con la naturalidad de quien guarda un pañuelo.
 
 No era la primera vez que algo así pasaba. Pero era la primera vez que yo lo veía con mis propios ojos.
 
@@ -6328,17 +6380,27 @@ El Presidente, por su parte, sabe perfectamente cómo funciona el sistema que é
 
 Lo sé porque Julián me mostró documentos.
 
-Julián, antes de morir, había juntado años de evidencia: correos electrónicos, actas de reuniones privadas, testimonios grabados. Todo organizado en carpetas, con fechas y nombres.
+Julián, antes de morir, había juntado años de evidencia: correos electrónicos interceptados, actas de reuniones privadas que alguien había filtrado, testimonios grabados con voces distorsionadas para proteger a los informantes. Todo organizado en carpetas de cartón marrón, con etiquetas escritas a mano, con fechas y nombres subrayados en marcador amarillo.
+
+Las había guardado en un armario de su departamento, detrás de pilas de libros viejos que nadie revisaría. "Si me pasa algo —me dijo una vez, con una calma que me heló la sangre—, buscá atrás del Marx y el Arendt. Ahí está todo."
 
 Una de esas carpetas se titulaba: **"Proyecto Pobrecito"**.
 
-Adentro había un memorándum interno, fechado tres años antes de las últimas elecciones. Decía, entre otras cosas:
+La vi con mis propios ojos. La toqué. Sentí el peso de los papeles. Olí el olor a tinta vieja y a polvo acumulado.
+
+Adentro había un memorándum interno, fechado tres años antes de las últimas elecciones. Estaba impreso en papel oficial, con el logo del partido en la esquina superior izquierda y un número de protocolo que indicaba que era un documento real, no una falsificación.
+
+Decía, entre otras cosas:
 
 *"La estrategia de comunicación debe reforzar la imagen del votante como víctima del sistema anterior. Es fundamental que la población objetivo sienta que solo el partido oficial puede protegerla. Para eso, se recomienda:*
 
-*1. Aumentar la dependencia de programas sociales con tarjetas nominales (control del voto).* *2. Desalentar iniciativas productivas independientes que puedan generar comparación negativa.* *3. Mantener un relato constante de 'crisis externa' para justificar la continuidad del modelo.* *4. Celebrar la 'cultura del pobrecito' como identidad nacional positiva."*
+*1. Aumentar la dependencia de programas sociales con tarjetas nominales (control del voto y del gasto).*
+*2. Desalentar iniciativas productivas independientes que puedan generar comparación negativa con el modelo estatal.*
+*3. Mantener un relato constante de 'crisis externa' para justificar la continuidad del modelo de asistencia.*
+*4. Celebrar la 'cultura del pobrecito' como identidad nacional positiva, vinculándola a la lealtad partidaria.*
+*5. Utilizar la red de punteros territoriales para detectar y neutralizar casos de 'autonomía económica informal' que puedan servir como ejemplo negativo."*
 
-El documento tenía el logo del partido oficial. Y una firma al pie: la del actual Presidente.
+El documento tenía el logo del partido oficial. Y una firma al pie —con la caligrafía inconfundible, con ese trazo grande y pretencioso—: la del actual Presidente.
 
 \---
 
@@ -6346,27 +6408,35 @@ No estoy inventando nada. Todo lo que escribo acá estaba en las carpetas de Jul
 
 Carpetas que, curiosamente, desaparecieron la noche que lo mataron.
 
-La policía dijo que "no encontraron material relevante" en su departamento. Pero Lucas y yo habíamos visto esas carpetas. Julián nos las había mostrado.
+La policía llegó a las tres de la mañana, según dijeron. Encontraron a Julián tirado en el piso del living, con un tiro en la cabeza y las manos marcadas por ataduras. "Robo seguido de muerte", fue el carátula oficial.
 
-Alguien las sacó antes de que llegaran los peritos. Alguien que tenía acceso al departamento, que sabía dónde buscar, que entendía qué era lo peligroso.
+Pero los vecinos dijeron que no hubo ruido. Que no escucharon nada. Que solo vieron pasar dos autos negros —sin patente, con vidrios polarizados— media hora antes de que llegaran los patrulleros.
 
-Ese alguien no era un ladrón común. Era parte del sistema.
+La policía dijo que "no encontraron material relevante" en su departamento. Que el armario estaba vacío. Que no había carpetas, ni documentos, ni nada que indicara que Julián trabajaba en algo peligroso.
+
+Pero Lucas y yo habíamos visto esas carpetas. Julián nos las había mostrado apenas dos semanas antes. Nos había explicado qué significaba cada documento, de dónde venía cada prueba.
+
+Alguien las sacó antes de que llegaran los peritos. Alguien que tenía la llave del departamento, que sabía exactamente dónde buscar, que entendía qué era lo peligroso y qué podía dejarse.
+
+Ese alguien no era un ladrón común. No se llevaron el televisor, ni la computadora, ni la plata del cajón. Solo se llevaron las carpetas.
+
+Era alguien que trabajaba para el sistema.
 
 \---
 
 ¿Por qué cuento esto ahora?
 
-Porque el silencio es complicidad. Y yo ya pagué el precio de hablar con una bala en el costado.
+Porque el silencio es complicidad. Y yo ya pagué el precio de hablar con una bala en el costado. La cicatriz me lo recuerda cada mañana cuando me levanto, cada noche cuando me acuesto, cada vez que el frío del invierno me atraviesa el cuerpo.
 
-Si me matan por publicar este capítulo, al menos quedará escrito. Al menos alguien lo leerá. Al menos la verdad tendrá una oportunidad de circular.
+Si me matan por publicar este capítulo, al menos quedará escrito. Al menos alguien lo leerá. Al menos la verdad tendrá una oportunidad de circular, de copiarse, de pasar de mano en mano como los libros que leíamos en La Escalera.
 
-Y si no me matan —si deciden que ya no valgo el riesgo, que soy solo un pibe de barrio que nadie va a escuchar—, entonces habrá ganado algo peor que mi muerte: el desprecio del poderoso hacia el que habla desde abajo.
+Y si no me matan —si deciden que ya no valgo el riesgo, que soy solo un pibe de barrio que nadie va a escuchar, que mi voz es demasiado chica para importar—, entonces habrá ganado algo peor que mi muerte: el desprecio del poderoso hacia el que habla desde abajo.
 
 Pero eso también es información. Eso también es aprendizaje.
 
-El monstruo no solo mata. A veces ignora. A veces espera. A veces te deja hablar porque sabe que pocos escuchan.
+El monstruo no solo mata. A veces ignora. A veces espera. A veces te deja hablar porque sabe que pocos escuchan, que las voces pequeñas se pierden en el ruido del mundo.
 
-Mi trabajo es hacer que escuchen más.
+Mi trabajo es hacer que escuchen más. Aunque sea uno a la vez. Aunque sea de a poco. Aunque sea con este libro que estás leyendo ahora mismo.
 
 \---
 
@@ -6376,13 +6446,29 @@ Mi trabajo es hacer que escuchen más.
 
 *No tengo pruebas físicas de todo lo que afirmo —esas pruebas fueron destruidas o robadas. Solo tengo mi palabra, mi memoria, y el testimonio de quienes ya no pueden hablar.*
 
-*Julián murió por decir estas cosas desde un lugar de privilegio.* *Mauro murió por demostrarlo desde un taller de barrio.* *Yo sobreviví para contarlo.*
+*Julián murió por decir estas cosas desde un lugar de privilegio: desde su título universitario, desde su apellido de clase alta, desde su paper académico con citas y referencias.*
 
-*Si esto te llega, no lo dejes morir.* *Pasalo. Copialo. Hablalo.*
+*Mauro murió por demostrarlo desde abajo: desde su taller de barrio, desde sus manos llenas de callos, desde su negativa silenciosa a entrar en el sistema.*
 
-*La censura funciona cuando la gente obedece.* *Y yo decidí desobedecer.*
+*Yo sobreviví para contarlo. No sé por qué. Quizás porque mi voz era demasiado chica para importar. Quizás porque pensaron que la bala me callaría. Quizás porque simplemente tuve suerte.*
 
-*— E.*
+*Pero aquí estoy. Un año después del primer tiro. Escribiendo esto que estás leyendo.*
+
+*Si esto te llega, no lo dejes morir.*
+
+*Pasalo. Copialo. Hablalo.*
+
+*Ponelo en un grupo de WhatsApp. Leelo en voz alta en una juntada. Dejalo olvidado en un colectivo para que otro lo encuentre.*
+
+*La verdad no muere cuando la escriben. Muere cuando nadie la lee.*
+
+*La censura funciona cuando la gente obedece. Y yo decidí desobedecer.*
+
+*— E., desde San Aurelio*
+
+*P.D.: Si estás leyendo esto y sos uno de los que aparecen mencionados en estas páginas —con nombre censurado o sin él—, quiero que sepas algo: ya no tengo miedo. Ya me pegaron un tiro y sobreviví. Ya perdí a los que más quería. ¿Qué más van a hacerme? ¿Matarme? Si lo hacen, solo van a confirmar que todo lo que escribí es verdad. Y este libro va a circular más rápido que antes.*
+
+*Así que adelante. Estoy esperando.*
 
 
 # **Contenido**
